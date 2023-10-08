@@ -1,0 +1,111 @@
+# Xiaoai
+
+## Chapter One: self introduction
+
+It was the end of summer, and the typhoon had almost passed. The weather was overcast with a light rain and a gentle breeze. It had been more than a day since the incident occurred.
+
+I walked towards my apartment with Xiaoai, an 8-year-old girl by my side. My place was on the top floor, the easternmost unit of a decades-old Khrushchev-style building. Even though it had rained, the outlines of the two bodies on the ground were still visible. There were three or four people in uniforms outside the apartment entrance, one talking on the phone, and a few measuring the traces on the ground. None of them had umbrellas. Seeing this, the child beside me huddled closer to my side, and I gently put my arm around her shoulder, tilting the umbrella towards her.
+
+As we approached the entrance of the apartment, I deliberately shielded my face as I closed the umbrella, avoiding their gaze. Just as I was about to hurry inside the building, someone called out to us. I turned around to see two police officers and a community security guard. Xiaoai gripped my hand even tighter. The security guard greeted me, saying, "Hey, thank you for taking care of Xiaoai yesterday. The police are contacting her relatives. Can she stay with you for another couple of days?" I put on a carefully considered expression, showing a hint of sadness and sympathy, and then smiled a little, politely saying, "It's nothing, we're neighbors; it's the least I can do for her."
+
+I noticed that one of the two police officers, the younger one, seemed very familiar, like I had seen him somewhere before. His gaze at me appeared pensive as if he also recognized me for some reason. I didn't dare to hold his gaze for long and averted my eyes. At this moment, the young police officer introduced himself, "Hello, I'm PH, an officer from the Criminal Division of the Public Security Bureau. This is our veteran detective, Officer Feng." I also introduced myself, saying, "Hello, I'm L. I'm Xiaoai’s neighbor next door. She stays with me for now." The older police officer commented, "Is it really a good idea for her to stay next to the scene of the incident? She must be quite traumatized." I didn't know how to respond at once, so I just said, "She often comes over to my place to play; she's quite attached to me."
+
+Out of the corner of my eye, I saw the older police officer, seemingly scrutinizing me for a moment and then shifting his gaze to Xiaoai. I lowered my head and saw the little girl, who had lowered her head and was hiding behind me, looking fragile and dependent. I guessed that the old detective had also sensed her reliance on me, and I felt that the gaze directed at me had warmed up a bit. In reality, I was quite anxious; my acting skills were far from Xiaoai’s guise. Fortunately, she was smart and insightful, or else I wouldn't have been able to handle this pressure. Thinking about how this child had become this way, I couldn't help but feel a pang of sadness.
+
+After exchanging a few more pleasantries with the police and security guy, Xiaoai and I finally entered the apartment building.
+
+
+## Chapter 2: The Missing Bodies (PH's Perspective)
+
+On the day the typhoon passed through, it was July 19th. While the eye of the typhoon was passing over, colleagues at the police station received a distress call, reporting the discovery of two bodies beneath an old residential building. Despite having been stranded by the typhoon earlier, I managed to return to the station just as the rain and wind subsided, then I hurried to the scene with a colleague. The journey there was quite challenging as the first round of the typhoon had damaged the power supply in the vicinity, leaving the streets without any streetlights. Eventually, we navigated through the chaotic layout of the neighborhood and reached the building.
+
+The bodies laying there seem to be of a middle aged couple, illuminated by flashlights held by a few courageous residents from the community. My colleague secured the area, and I captured images of the bodies, outlining their positions. It appeared they had fallen from above, rigor mortis had already set in, indicating they had likely been deceased for over an hour, which coincided with the peak of the first round of the typhoon. Before we could complete our tasks, the calm of the typhoon's eye came to an end. Fierce winds and heavy rain returned, causing nearby power poles to sway dangerously. We had no choice but to retreat inside the building, using this time to investigate the identities of the deceased.
+
+Although this old community was run-down, its location was desirable, which meant most residents were migrant workers from various places, and there weren't many long-term residents left. People didn't know each other very well, so I had to go door-to-door on each floor based on the location of the bodies to inquire. Some apartments were vacant, while others claimed not to recognize the victims. When we were nearing the top floor, we finally encountered a family who recognized the deceased as the couple living directly above them. They mentioned that this family was incredibly noisy and disrupted their sleep. They had even tried to negotiate when they first moved in, but it was futile. The upstairs neighbors continued to have frequent loud arguments and noisy disturbances. They mentioned that there seemed to be a young girl in that family, who rarely came downstairs to play with other children, so she wasn't well-known.
+
+Armed with this critical information, we quickly ascended to the top floor. This old Khrushchyovka-style building resembled a motel, with each floor sharing a corridor. On one side of the corridor was an approximately 1.2-meter-high outer railing, and on the other side were the entrances to each apartment. The top floor was pitch black, but in the beam of our flashlights, we saw that the door of the family we were looking for was wide open, swaying with the storm. My colleague and I entered hastily, finding the interior in disarray, though we couldn't tell if it was due to a break-in or if it was always this cluttered. We frantically searched for the young girl and finally discovered her unconscious in a corner of her room. I picked her up, intending to take her to the hospital.
+
+Just then, we heard commotion from outside, even louder than the raging storm.
+
+The bodies had disappeared.
+
+
+## Chapter 3: The Feeling of Heartbeat
+
+July 20th. 
+
+Early in the morning, 9 hours after the bodies went missing, the police surrounded the building. They continued to inquire the residents in the building and the neighborhood.
+
+PH asked, "Officer Feng, what do you think of this case?"
+
+Detective Feng replied firmly, "Murder."
+
+PH nodded, "The body disappeared right before my eyes, so I can't help but agree. But what could be the motive for this murder? The family was deeply in debt, so it doesn't seem like a financial motive. Could it be a loan shark or drug dealer? It seems like a vendetta, but the killer spared the child, thank god. Regardless of the motive, they staged a suicide by jumping from the building. So why steal the body?"
+
+Detective Feng pondered for a moment and said, "I can't currently guess why the killer committed the murder, but if they stole the body, it's because the real method of the crime holds crucial information pointing to someone involved."
+
+PH agreed, "You're right. Finding the body is our top priority now. Without key evidence, even if we find a suspect, we can't convict them."
+
+"What about the child? Has she said anything yet?"
+
+"That child seems to have suffered significant psychological trauma. The doctor found bruises on her body, some old, some recent. It's possible she was injured and unconscious shortly after the incident. I took her to the hospital last night, and she should still be there. The social relations investigation team hasn't made much progress, and we haven't located any other relatives. Currently, a neighbor is looking after her at the hospital."
+
+"I want to meet this child. At the moment, she and the indoor crime scene are our two breakthrough points."
+
+"Yes," PH nodded, recalling his experience of getting soaked in the rainstorm last night. "Last night's storm caused a power outage in the neighborhood, and since they live on the top floor, there likely weren't any reliable witnesses."
+
+"Wait a minute, didn't you say that the neighbor lives right next to them? Didn't she hear anything?"
+
+"I asked her last night, but she claimed to be asleep and said she didn't hear anything. I even woke her up with loud knocking on her door, but she wasn't fully awake. It couldn't have been her; she's so thin. How could she have dealt with a body just minutes ago, run up to the 9th floor, and then slept so soundly without anyone noticing?"
+
+"Hmm... Was your knocking louder than thunder? If there was no thunder, she shouldn't have been sound asleep, and she might have heard noises from next door."
+
+PH, for the first time, couldn't fully agree with Detective Feng's line of thinking, but he also couldn't reveal the whole truth. He felt like he had seen that child and the young lady next door somewhere before, but he couldn't recall it. When he opened the door next last night and saw the person who answered, his mind seemed to go blank.
+
+Was it the feeling of attraction? He shook his head, quickly pushing away thoughts unrelated to work.
+
+
+## Chapter 4: Goodnight
+
+7.19.
+
+What happened felt like a dream. The eye of the typhoon had passed not long ago, and another fierce storm had begun. Standing behind the door, drenched from head to toe, my hands were still trembling, and I couldn't think of anything. My mind was filled with recent chaotic images - the flooded hallway, the pounding doors in the wind, the lifeless body glimpsed in the lightning. I forced myself to stop these frantic thoughts and took a hot shower before lying down on my bed.
+
+Strangely, among all the intense scenes, what occupied the most important place in my heart was a sensation - the feeling of the warm scalp and roots of the hair of Xiaoai, who was equally soaked when I held her. After the initial impulse, should I be afraid, regretful, or guilty? It was too late for any of that; the police could arrive at any moment.
+
+When I opened the prescription sleeping pills, I noticed that I had a lot less left. I had received a month's supply just last week, but now there were less than three days' worth. I sighed. Well, I had entertained thoughts of suicide just now, and the pills had disappeared. At least let me get a good night's sleep tonight.
+
+Goodnight, Xiaoai. You're free now. With that thought, I drifted off into a deep sleep.
+
+
+## Chapter 5: The Hospital
+
+Xiaoai lay quietly on the hospital bed; she had always been a quiet child. This silence was a self-learned ability to protect herself from being noticed. A young woman sat by the window, gently stroking the little girl's head. It felt just as warm and soft as that night, but now it was dry.
+
+As she touched her, the young woman felt a scar on Xiaoai's head, a place where hair no longer grew. In the girl's mind, a series of voices echoed:
+
+"Who do you think you are? Say it again, I dare you! You worthless wretch! How dare you come here and lecture me!" The angry man's voice mixed with drunken slurs, followed by the sound of a chair crashing to the floor, a woman's screams, and furious curses, along with the crashing of many things. Bang! It was the sound of a bottle and a hard object colliding, followed by the shattering of glass.
+
+Then, as she examined Xiaoai's cheek more closely, she seemed to hear more voices:
+
+The sound of shattered porcelain suddenly interrupted the cheerful shouts and laughter from a card game. "You useless brat, can't even do this right! Why don't you just die? And you dare to glare at me! Get lost! You consume everything I have, and you don't appreciate it at all." The woman's voice was full of anger, followed by a series of unbearable insults. After a moment of silence, there was a crisp slap. But there was no crying; there was never any crying. The child had learned that crying would not bring sympathy or warmth from the adults; it would only make them angrier. But she was really tired, and that slap had made her lose her balance, causing more bowls to shatter. "Stop making noise! Clean up quickly, don't disturb us," the irritable and loud man's voice followed, then cheerful voices, "Let's continue, who played a pair of Aces just now?"
+
+The bruises that remained on Xiaoai's arm:
+
+"Tell me, did you steal the money? Who gave you the courage to steal money at such a young age?" The man shouted angrily. "I didn't, it wasn't me!" The child rarely voiced resistance. "If it wasn't you, then who could it be?" The woman's mocking voice was sharp and nauseating. Snap! It was the sound of a belt striking flesh.
+
+The young woman couldn't bear to continue. Those two scoundrels deserved their fate.
+
+In her half-awake state, Xiaoai felt a long-lost tenderness. Was it her mother? But they had said her mother had died of illness a few days ago; it must be a lie. She had been waiting for her to come and pick her up. But if her mother were alive, she would surely come for her, right? Where could her mother be? The image and voice of her mother had gradually become hazy. Three years ago, her mother had left one night, unable to endure her father's drinking, gambling, and abuse. She used to call occasionally, and if the call disconnected after two rings, it meant it was her mother. She would call back. But her mother hadn't called in a long time.
+
+In the past few months, the only source of warmth in her life had been the older sister of their neighbor. Since she had moved in, she had taught her homework, taken her to the bubble tea shop where she worked, and helped her disinfect her wounds. But she had told her that she would be returning to school in September and moving back to the dorms. Even that last glimmer of hope was gone. She wished the older sister could take her away. But even her own mother hadn't come to pick her up.
+
+Mother, please don't go.
+
+The young woman wiped away the tears that had welled up in Xiaoai's eyes, once again drowning in deeper self-blame. Why couldn't she have saved her sooner? Thinking this, her tears continued to fall. She stood up, turned away, stifled her sobbing, and didn't want to wake the child.
+
+Outside the window, she heard indistinct conversations and saw a dark figure against the frosted glass, accompanied by a doctor in a white coat. The tall, dark figure looked somewhat familiar, but she didn't dare go out to investigate; she could only carefully discern it through the frosted glass.
+
+After the dark figure left, the doctor came in. At this point, Xiaoai was awake, and the doctor checked her condition, saying that she was doing okay and there were no major issues. Xiaoai insisted on going home with the young woman. The young woman asked the doctor where to pay the fees. The doctor replied not to worry, as a man had just come in and paid the bills specifically for Xiaoai. He had wanted to visit her but left when he heard she was resting.
+
+Who could that man be? The young woman's mind was filled with thoughts of that shadowy figure.
