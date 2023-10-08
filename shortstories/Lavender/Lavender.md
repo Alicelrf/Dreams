@@ -36,7 +36,7 @@ to see if she was a real mole. "She's moving!" "Is she really a mole?" Suddenly,
 attention from the group, the mole sister felt extremely nervous. She turned around and hurried 
 back into the burrow, refusing to come out again.
 
-The lavender scent, which can be comforting when one feels sad. But all the lavender over the hill 
+The lavender scent, can be comforting when one feels sad. But all the lavender over the hill 
 couldn't alleviate the sadness within the white mole sister. Ever since that day, she didn't want 
 to venture outside anymore. Her mom and dad took turns consoling and encouraging her, assuring her 
 that if she showed a little more bravery and resilience, everyone would see that she was just a 
