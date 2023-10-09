@@ -109,3 +109,34 @@ Outside the window, she heard indistinct conversations and saw a dark figure aga
 After the dark figure left, the doctor came in. At this point, Xiaoai was awake, and the doctor checked her condition, saying that she was doing okay and there were no major issues. Xiaoai insisted on going home with the young woman. The young woman asked the doctor where to pay the fees. The doctor replied not to worry, as a man had just come in and paid the bills specifically for Xiaoai. He had wanted to visit her but left when he heard she was resting.
 
 Who could that man be? The young woman's mind was filled with thoughts of that shadowy figure.
+
+
+# Chapter Six: Before Going to the hospital
+
+Alarm set off. I woke up, and it took me a while to fully come to my senses. Now it is 7am July 20th, Saturday today is my rotation at work. Suddenly, countless thoughts flooded my mind all at once. Where was Xiao Ai, and was she okay? How had she managed it? Yes, it was the sleeping pills; she must have taken them. So, that's how she had made her dad and stepmother unconscious last night, right? Regardless of the circumstances, I had helped her commit murder. What should I do? Should I turn myself in? If I did, how long would I be sentenced to? Xiao Ai was only eight years old, and though she didn't bear criminal responsibility, how could she grow up healthy with such a past? Of course, if those two people didn't die, Xiao Ai would still be living in hell. Thinking about it, I regretted not taking her away before all of this happened. If only I were stronger and more decisive. This should never have been left to a child to resolve. How could I blame her?
+
+Summoning up the courage, I went downstairs. After such an incident, I had no idea how many of the neighbors would continue living here. The bodies were no longer there, only the outlines drawn by the police remained. I avoided the curious gazes of everyone and continued on my way to the bubble tea shop where I worked. Would the police think it was a case of suicide? Would they discover it was actually murder? If they thought it was murder, who would they suspect? Could I live the rest of my life without them suspecting me? My head was overwhelmed.
+
+After yesterday's typhoon, the neighborhood was in disarray, with people cleaning up scattered branches and overturned trash cans. The air was still saturated with excessive moisture, mingling various odors. I had forgotten how I had reached the bubble tea shop, but I changed into my work uniform. My colleague, Eleanor, greeted me with her usual sweet smile, "Alice, good morning! Hey, you look like you didn't get much sleep. You didn't catch a cold from getting soaked yesterday, did you?" I forced a smile as I prepared the ingredients for making tapioca. "No, it's fine, I just didn't sleep well. We need to restock the milk here; please get a container from the back for me."
+
+We needed to prepare enough fresh tapioca and cut enough fresh fruit before the first batch of customers arrived. Typically, the crowd would pick up around noon and get busier in the afternoon. I forcefully directed all my attention to work - boiling sugar water, adding various starches, stirring while cooking. Then, taking it out, kneading it into the tapioca starch, cutting it into strips, pieces, rolling it into balls, and cooking again. By the time this whole process was finished, several hours had passed. During this time, Eleanor managed the front counter, and we finally reached the lunch break.
+
+"Alice, Alice, did you even hear what I just said?"
+
+"Sorry, what did you say? I wasn't paying attention."
+
+"Wow, you really spaced out. You're not running a fever, are you?" Eleanor reached out and felt my forehead, then touched her own. "I just told you, the police officer who got stuck here during the first round of the typhoon came by to check if we'd secured the sign outside."
+
+"Police officer? What police officer?" When I heard the word "police," my heart skipped a beat, and I became alert. Only then did I process what she had said.
+
+"The one who was stuck here during the typhoon yesterday! He's really nice! Do you think he likes me? He's quite good-looking. Oh, by the way..."
+
+I genuinely had no idea what she was talking about, but seeing Eleanor launch into her own little monologue, I didn't bother interrupting her.
+
+At that moment, I received a call from an unfamiliar number. "Hello, is this Xiao Ai's guardian? Please come to the pediatric ward at First Hospital urgently." "Doctor, how is she?" "Don't panic; she's not in a life-threatening condition. But I'm not a doctor..."
+
+This phone call snapped me back to the harsh reality. I quickly removed my work uniform. "Eleanor, I'm so sorry, the hospital just called and said Xiao Ai is in the hospital. I have to go see her!" "Huh? She was perfectly fine yesterday. What happened to her? What about her parents?"
+
+I couldn't answer any of these three questions. I was momentarily at a loss. But why did she know that Xiao Ai was fine yesterday? "I don't have time to explain right now. I'll tell you later!" I grabbed my bag and rushed out of the shop.
+
+
