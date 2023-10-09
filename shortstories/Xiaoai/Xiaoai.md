@@ -111,7 +111,7 @@ After the dark figure left, the doctor came in. At this point, Xiaoai was awake,
 Who could that man be? The young woman's mind was filled with thoughts of that shadowy figure.
 
 
-# Chapter Six: Before Going to the hospital
+## Chapter Six: Before Going to the hospital
 
 Alarm set off. I woke up, and it took me a while to fully come to my senses. Now it is 7am July 20th, Saturday today is my rotation at work. Suddenly, countless thoughts flooded my mind all at once. Where was Xiao Ai, and was she okay? How had she managed it? Yes, it was the sleeping pills; she must have taken them. So, that's how she had made her dad and stepmother unconscious last night, right? Regardless of the circumstances, I had helped her commit murder. What should I do? Should I turn myself in? If I did, how long would I be sentenced to? Xiao Ai was only eight years old, and though she didn't bear criminal responsibility, how could she grow up healthy with such a past? Of course, if those two people didn't die, Xiao Ai would still be living in hell. Thinking about it, I regretted not taking her away before all of this happened. If only I were stronger and more decisive. This should never have been left to a child to resolve. How could I blame her?
 
