@@ -140,3 +140,27 @@ This phone call snapped me back to the harsh reality. I quickly removed my work 
 I couldn't answer any of these three questions. I was momentarily at a loss. But why did she know that Xiao Ai was fine yesterday? "I don't have time to explain right now. I'll tell you later!" I grabbed my bag and rushed out of the shop.
 
 
+## Chapter Seven: A Shadow in the Sunlight
+
+As we entered the apartment building, I felt a slight relief. I let go of Xiao Ai's hand and realized my palms were sweaty. Xiao Ai looked up at me, her eyes showing both concern and a level of maturity not typical for her age. I smiled, trying to reassure her, and she mischievously blinked. I turned around to glance at the three figures from a distance, and the silhouette of the young police officer suddenly struck me. Just now, in my nervousness, I hadn't recognized him.
+
+It was the same figure I had seen at the hospital through the frosted glass, it had to be him. As if sensing my gaze, he turned to look in our direction. We locked eyes for a moment, and I panicked, turning to head into the building. Xiao Ai seemed to sense something and quietly asked, "Sis, do you know that police officer? I think he was the one who took me to the hospital the night before yesterday." I said, "Well, when I visited you at the hospital, he seemed to have been there as well. He even covered some of your medical expenses."
+
+Apart from the hospital visit, where else had I seen him? I felt there was more to our connection than just that vague encounter. Lost in thought, I suddenly noticed Xiao Ai waving her hand in front of my face. "Hey, sis, do you like him?" Her question caught me off guard. "No, it's just that..." I trailed off before saying that I think I've seen him somewhere before. I felt like I was only making it sound more suspicious. This back-and-forth only fueled Xiao Ai's curiosity. "Sis, you're blushing!" I responded with silence.
+
+The elevator was still not working, and we finally reached the top floor after climbing the stairs, both of us sweating. As we looked down the hallway, a heavy silence settled between us. The warm and light-hearted atmosphere from earlier had disappeared.
+
+Yes, we were both murderers.
+
+I quickly lowered my head to find my keys and unlock the door. I couldn't bring myself to make eye contact with Xiao Ai. Why couldn't I? I didn't know how she was coping with all of this; after all, she was just a child. I should talk to her and share some of the burden. But it seemed like I was the one who couldn't handle it. Did she really have no feeling of burden or guilt? Yeah, to be fair, she had never experienced a good day under their control. But were they truly deserving of death?
+
+We entered the apartment, closed the door, and locked it. Leaning against the thin door panel, I couldn't help but let out a sigh. This sigh caught Xiao Ai's attention.
+
+In a hushed voice, she said, "Sis, the neighbors told me that the police couldn't even find their bodies. There must be some higher power helping us." I replied softly, "But without bodies, it might be more suspicious." Xiao Ai held my hand and reassured me, "Sis, don't worry, no one suspects us." She continued, "I really appreciate what you did for me that day. If you hadn't come back and the chair hadn't broken, I had no idea what to do."
+
+Looking at Xiao Ai's clear eyes, I wasn't sure if she was genuinely thanking me or subtly reminding me that we were in this together. This thought sent shivers down my spine, and I involuntarily withdrew my hand from her grasp, saying, "I'll go cook. You can watch cartoons for a while." I quickly headed to the kitchen.
+
+Finally alone in the kitchen, I heard Xiao Ai turn on the TV to watch her favorite anime, Detective Conan. Detective Conan, I put up a bitter smile thinking of the anime. So, the two of us are like those faceless shadows in the anime, aren't we? I turned on the exhaust fan, sat down on the floor, and began to cry, as quietly as I could. What should I do? How am I going to handle this? Is this how I'll spend the rest of my life, consumed by this guilt?
+
+At that moment, I didn't know that Xiao Ai was hiding by the kitchen door, secretly listening to me crying beneath the sound of the exhaust fan.
+
