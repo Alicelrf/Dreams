@@ -12,13 +12,6 @@
 
 小爱却是坚持抱着被子就往门外走，走出门我们惊讶得发现，我的房东（同样是生活里不认识的人）竟然不知什么时候坐在了客厅沙发上。
 
-Chapter Zero: Prelude (Just a fragmented scene. It follows Fragment Seven and is followed by Fragment Eight)
-I pushed open the door to my small apartment, where Xiaoai (someone I didn't know in real life) had been staying temporarily for the past couple of days, only to be surprised to find her packing her things. The room was in disarray. She said she was leaving to avoid causing me any trouble. I strongly objected because I knew she had nowhere else to go.
-She looked at me with determination and calmness, saying, "Sister (we are not siblings but in mandarin we use this as a common call even to strangers.), I know you may not believe me, but I won't tell them you were involved in the case. Because, originally, it was all me."
-Then, she lowered her head to put her belongings into a sheet, all the while saying, "I don't want to disrupt your life, disrupt that police officer and you..."
-I interrupted her in a hushed tone, saying, "Don't talk nonsense. He's only getting close to me because of the case. We two are still in this together. Please don't rush to leave. Where will you go?"
-Deep down, I was desperate, feeling like I couldn't go back to a normal life anymore, I also unable to deceive myself that nothing had happened. But I still forced a smile to try and keep her, as if my life had already ended, leaving only Xiaoai.
-However, Xiaoai persisted, clutching the sheet and heading for the door. When we stepped outside, we were shocked to discover that my landlord (another person I didn't know in real life, a completely imaginary character) was sitting on the living room couch, seemingly there at some point without us noticing.
 
 第一章：自我介绍。
 
@@ -131,4 +124,32 @@ PH，第一次无法同意冯警官的思路，但他也无法说出全部的实
 
 我鼓起勇气下楼，发生了这种事，也不知道邻居们还有多少会继续住在这里。尸体已经不在了，剩下的只有警方画的轮廓。我避开所有人的好奇的目光照常走在去打工的奶茶店的路上。
 
+
+第七章 阳光下的黑影
+
+刚刚进入公寓楼，稍稍松了一口气。我松开了小爱的手，才发觉我手心里全是冷汗。小爱抬头看着我，眼睛里是关切还有一些与年龄不符合的冷静。我笑了笑表示没关系，她也狡黠地眨了眨眼。我回过头远远看了一眼那三个人的身影，其中那个年轻警察的侧影一下就让我想起来是谁了，刚刚太紧张居然没有认出来。
+
+就是昨天在医院里隔着磨砂玻璃见过的那个身影，一定是他。仿佛察觉到了我的视线，他转过头来看向我们。我们遥遥对视了一瞬间，我慌张地转身像楼里走去。小爱好像察觉到了什么，悄悄问道“哎？姐姐，你认识那个警察哥哥吗？前天晚上好像就是他把我送去医院的。” 我说，“嗯，我去医院看你的时候，他好像也来过。说起来你的医药费还是他垫付的。”  
+
+可是除了医院那次以外，我还在哪里见过呢？感觉的不仅仅是那一次模糊的侧影，肯定还有更深刻的会面。这么沉思着，只见小爱拿手在我眼前晃“哎呀，姐姐你是不是喜欢他？” 这么一问，让我猝不及防。“没有啊，我只是觉得。。。” 我没有说完“好像在哪见过他”，觉得只是越描越黑。结果我这个欲言又止反而激发了小爱的八卦之心。“姐姐脸红了呢！” 我：“。。。。。。”
+
+电梯还没有修好，我们终于满头是汗地爬楼梯上到顶楼。看着楼道，我和小爱又沉默了。刚刚温馨轻松的氛围一瞬间就消失了。
+
+是的，我们是两个杀人犯。
+
+我赶紧低头找钥匙开门，不敢和小爱对视。为什么不敢呢。我不知道她是如何处理这一切的，她还是个孩子。我应该和她谈谈帮她分担一点。可是好像我才是那个先承受不了的人。她真的完全没有负担和愧疚吗？也是，她在他们手里没有过一天好日子。可是他们真的罪已致死吗？
+
+我们进了门，关上门，反锁了。背靠着这薄薄的门板，我不由自主轻叹了一口气。这一叹气，又让小爱发现了。
+
+小爱悄声对我说，“姐姐，我听邻居阿姨说，警察连尸体都找不到。肯定有神灵在帮助我们。” 我小声回答道：“可是没有尸体他们更会觉得是他杀呀。”
+
+“姐姐，你不要担心啦，没有人怀疑我们。”小爱拉着我的手小声宽慰道。“我真的要感谢你那天帮我。那天不是你刚好回来，椅子突然坏了，我真的不知道该怎么办。”
+
+看着小爱一如既往澄澈的眼睛，我却不知道那句话小爱是真的在感谢我，还是在提醒我我们是在同一条船上。但这样一念，让我浸骨地寒冷，愣在了原地。我不由自主抽出了被小爱握着的手，说着“我去做饭了，你看会儿动画片吧。”我就赶紧走向了厨房。
+
+等我终于一个人在厨房里的时候，我听见小爱打开了电视开始看她喜欢的名侦探柯南。名侦探柯南啊，我苦笑。所以我们俩在动画里的就应该是那些没有脸的黑影吧。我把换气扇打开，缓缓坐在地上轻轻哭泣了起来。
+
+怎么办，我该怎么办。接下来所有的人生都要在这个罪恶里度过了吗？
+
+在那时，我不知道的是，小爱正躲在厨房门口偷偷听着换气扇下我哭泣的声音。
 
