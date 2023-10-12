@@ -6,11 +6,11 @@ Narcissus Generation Zero [COVID Omicron variant]
 
 Narcissus Generation One [Naming is Really Hard 1]
 * First discovered in 2027
-* Symptoms: Mild cases often have intermittent hallucinations. Most infected recover within a week. After recovery, most mild cases do not show the Narcissus virus, but the Omicron variant remains. Severe cases may experience temporary memory loss, with some recovering their memory after some time. After recovery, almost no traces of Omicron or Narcissus are found. Those who don't recover show symptoms of excessive sleepiness and deep coma.
+* Symptoms: Mild cases often have intermittent hallucinations. Most infected recover within a week. After recovery, most mild cases do not show the Narcissus virus, but the Omicron variant remains. Severe cases may experience temporary memory loss, with some recovering their memory after a short time. After recovery, almost no traces of Omicron or Narcissus are found. Those who don't recover show symptoms of excessive sleepiness and deep coma.
 * Severe Treatment: Corticosteroid medications, electrical stimulation for deep awakening.
 * Treatment Side Effects and Aftereffects: Patients wake up with memory and emotional disorders and resist treatment.
 * Cutting-edge Treatment Research: Ongoing studies on hypnotherapy as an adjunct treatment; results are unclear.
-* At-Risk Groups: Everyone is susceptible. Severe cases are more common in females, accounting for about 70%. Studies have shown that most severe cases had light sleep and frequent dreams, but some scholars question the sample size.
+* At-Risk Groups: Everyone is susceptible. Severe cases are more common in females, accounting for about 70% of infections. Studies have shown that most severe cases had light sleep and frequent dreams, but some scholars question the sample size.
 * [1] The Lancet, October 2027, First Issue: "What we know about Narcissus"
 
 Narcissus Generation Two [Naming is Really Hard 2]
