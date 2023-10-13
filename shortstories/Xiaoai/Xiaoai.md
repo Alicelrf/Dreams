@@ -168,11 +168,11 @@ At that moment, I didn't know that Xiao Ai was hiding by the kitchen door, secre
 
 “Come in!” Officer Feng said as he handed over a report to PH. 
 
-"Hey, Take a look at this. It's a report just sent from the forensics lab. They found a high concentration of sedative drugs in a water cup from the crime scene,"
+"Take a look at this. It's a report just sent from the forensics lab. They found a high concentration of sedative drugs in a water cup from the crime scene,"
 
-"Hypnotic? Could it be that one of the victims left them in the cup on a previous day?" PH asked while swiftly scanning through the report summary and examining the scanned images of the crime scene and test results.
+"Roofied? Could it be that one of the victims left them in the cup on a previous day?" PH asked while swiftly scanning through the report summary and examining the scanned images of the crime scene and test results.
 
-Officer Feng added, "Look at the last page; this drug isn't the kind meant to be dissolved in water; it's originally in capsule, and it's a prescription medication. I checked with the investigative team, and they didn't find any prescription bottles in their apartment." The experienced old detective seemed particularly excited, perhaps because of this new evidence.
+Officer Feng added, "Look at the last page, the lab-work; this drug isn't the kind meant to be dissolved in water; it's originally in capsule, and it's a prescription medication. I checked with the investigative team, and they didn't find any prescription bottles in their apartment." The experienced old detective seemed particularly excited, perhaps because of this new evidence.
 
 "So, it's highly likely the victims were drugged and lost consciousness, then thrown from the top floor, right? Are there any unfamiliar fingerprints on the cup?"
 
@@ -194,7 +194,7 @@ PH replied, "Yes, I had just arrived at the scene, finished drawing the outline 
 
 PH hesitated for a moment, thinking, "Does a normal college student sleep so early and soundly?” But he didn't bring up this question with Officer Feng. "But from the time I arrived on the top floor to the moment the bodies disappeared, she didn't have the time or opportunity to escape my notice and run off to deal with the bodies. That corridor and the stairs were the only ways for her to go downstairs. I still don't know her alibi for the time of the crime, but she does provide an alibi for the time when the bodies disappeared."
 
-Officer Feng agreed, saying, "The neighborhood had a power outage due to the typhoon, and all the old street surveillance cameras weren't working. Nobody knows how the bodies magically disappeared. With the current evidence, we have no prime suspect, but I can't shake off the feeling that the female college student is somewhat suspicious. She and the child might both be involved in this case. That said, we can't officially interrogate her at the moment. Tomorrow, you should pay her another visit, but don't make her suspicious. If she's indeed involved in the crime, she might have accomplices. We still haven't found the bodies, and if we alert them now, it might be even harder to locate."
+Officer Feng agreed, saying, "The neighborhood had a power outage due to the typhoon, and all the old street surveillance cameras weren't working. Nobody knows how the bodies magically disappeared. With the current evidence, we have no prime suspect, but I can't shake off the feeling that the female college student is somewhat suspicious. She and the child might both be involved in this case. That said, we can't officially interrogate her at the moment. Tomorrow, you should pay her another visit, but don't raise her suspicions. If she's indeed involved in the crime, she might have accomplices. We still haven't found the bodies, and if we alert them now, it might make it harder to locate them."
 
 PH nodded in agreement and got ready to leave Officer Feng's office. 
 
