@@ -164,3 +164,41 @@ Finally alone in the kitchen, I heard Xiao Ai turn on the TV to watch her favori
 
 At that moment, I didn't know that Xiao Ai was hiding by the kitchen door, secretly listening to me crying beneath the sound of the exhaust fan.
 
+## Chapter Eight: New Evidence
+
+“Come in!” Officer Feng said as he handed over a report to PH. 
+
+"Take a look at this. It's a report just sent from the forensics lab. They found a high concentration of sedative drugs in a water cup from the crime scene,"
+
+"Roofied? Could it be that one of the victims left them in the cup on a previous day?" PH asked while swiftly scanning through the report summary and examining the scanned images of the crime scene and test results.
+
+Officer Feng added, "Look at the last page, the lab-work; this drug isn't the kind meant to be dissolved in water; it's originally in capsule, and it's a prescription medication. I checked with the investigative team, and they didn't find any prescription bottles in their apartment." The experienced old detective seemed particularly excited, perhaps because of this new evidence.
+
+"So, it's highly likely the victims were drugged and lost consciousness, then thrown from the top floor, right? Are there any unfamiliar fingerprints on the cup?"
+
+"Since we haven't found the bodies yet, we compared it with common items in the room. No unfamiliar fingerprints. However, if the killer was wearing gloves, it would solve that problem," Officer Feng said, waving his hand and continuing to pace around the room. "Assuming the cause of death was drugging and falling from the top floor, the profile of the killer is entirely different from what we initially thought—violent criminals, loan sharks, or the underworld. Poisoning suggests that the killer was someone known to the victims. Poisoning is almost certainly the choice of a physically and psychologically disadvantaged offender, and the majority are females."
+
+PH admired Officer Feng's keen and experienced investigative skills. "The victims known to the offender are vulnerable and female. That's probably just the child. I found out during my investigation that the two victims treated the child very poorly, constantly abusing her. Moreover, the female victim wasn't the child's biological mother. But how could an 8-year-old child throw two adults from the top floor, unless someone helped her?"
+
+"And there's that female college student living next door alone. Didn't we just see her this afternoon? I felt like she was acting a bit evasive," Officer Feng said.
+
+PH thought about the young woman they had met that afternoon and shook his head. He believed it would be difficult for her alone to throw two unconscious adults from the building. Wait a minute, didn't I question her on the night of the crime scene investigation to find eyewitnesses? Why did I forget such an important detail? PH began recalling the events of the night. He had undergone specialized training, and he should have remembered crucial details vividly, but there were strange gaps in his memory regarding this young woman.
+
+Officer Feng noticed PH's contemplation and said, "When you were investigating the scene that night, didn't you meet this female college student?"
+
+PH replied, "Yes, I had just arrived at the scene, finished drawing the outline of the body, and the second typhoon started. We had to retreat into the building. I started asking the neighbors for information about the victims. At that time, we thought it was a suicide by jumping off the building, and the rain was particularly heavy, so there was little protection for the bodies. Once I learned the identity of the victims, I rushed to their apartment and saw the unconscious child. Just as I was about to take her to the hospital, I heard someone shouting that the bodies were missing."
+
+"When did you meet the neighbor then?"
+
+"As soon as I heard the bodies were missing, I realized it might be a murder, so I requested backup from the police station. Because of the weather, my colleagues took a while to arrive. I couldn't leave the crime scene, so I called 120 to arrange for an ambulance to take care of the child. While waiting for the ambulance, the child was temporarily taken care of by a woman in the building. Then, I started knocking on the door of the neighboring female college student. Since there were only two families on the top floor, I was very eager to find out if she heard any unusual sounds. I knocked for quite some time before someone opened the door. She appeared to have just woken up with messy hair and claimed to have been sleeping for the past few hours, hearing nothing."
+
+PH hesitated for a moment, thinking, "Does a normal college student sleep so early and soundly?” But he didn't bring up this question with Officer Feng. "But from the time I arrived on the top floor to the moment the bodies disappeared, she didn't have the time or opportunity to escape my notice and run off to deal with the bodies. That corridor and the stairs were the only ways for her to go downstairs. I still don't know her alibi for the time of the crime, but she does provide an alibi for the time when the bodies disappeared."
+
+Officer Feng agreed, saying, "The neighborhood had a power outage due to the typhoon, and all the old street surveillance cameras weren't working. Nobody knows how the bodies magically disappeared. With the current evidence, we have no prime suspect, but I can't shake off the feeling that the female college student is somewhat suspicious. She and the child might both be involved in this case. That said, we can't officially interrogate her at the moment. Tomorrow, you should pay her another visit, but don't raise her suspicions. If she's indeed involved in the crime, she might have accomplices. We still haven't found the bodies, and if we alert them now, it might make it harder to locate them."
+
+PH nodded in agreement and got ready to leave Officer Feng's office. 
+
+At that moment, Officer Feng's attention was drawn to a pile of photos from the victims' homes on his desk. He picked up one particular photo and gestured for PH to come over. PH followed his gaze and saw a typical office chair with wheels in the top left corner of the photo. However, it was slightly tilted because one of the wheels had come off.
+
+
+
