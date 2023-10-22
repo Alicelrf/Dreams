@@ -201,4 +201,30 @@ PH nodded in agreement and got ready to leave Officer Feng's office.
 At that moment, Officer Feng's attention was drawn to a pile of photos from the victims' homes on his desk. He picked up one particular photo and gestured for PH to come over. PH followed his gaze and saw a typical office chair with wheels in the top left corner of the photo. However, it was slightly tilted because one of the wheels had come off.
 
 
+## Chapter Nine: The Choice
+I gazed in surprise at the plump lady who had appeared in the living room, and I wasn't sure how to respond. What was she doing here? How much of our conversation had she overheard? Would she tell the police what had happened? The lady is dressed in a low cut dress and her boots are of impressive size. 
+
+"If you want to change what has already happened, come to this address before midnight tonight. After that, I won't be able to help you," she said.
+
+With that, she pulled out a slender eyebrow pencil and a pristine white napkin from her handbag and quickly wrote down an address. She left the napkin on the coffee table and confidently made her way to the front door.
+
+Alice and I both stood there in shock, unable to say a word. Change what had already happened? What did that mean? I watched the landlady leave, and from the corner of my eye, I could see Alice struggling to hide her joyful expression. I knew she regretted helping me.
+
+I picked up the napkin and smelled the lingering scent of perfume. I handed it to Alice and asked, "Sis, if she can really change what's happened, would you still help me this time?"
+
+She led me to the sofa and took a moment before responding, "Xiao Ai, I don't think I can bear the burden of this guilt. I'm sorry. If there's a chance to start over, I hope neither of us has blood on our hands." She continued, "I don't want to help you by resorting to murder, but I'll find a way to take you away from them."
+
+I wasn't surprised at all. She had already done so much for me, and now she was carrying a burden that wasn't originally hers. However, I found it hard to believe in the future she described. "How will you take me away? You're still renting and studying here."
+
+Alice said, "I'll graduate next year, and then I can move to a distant city to find a job. I can secretly bring you along if we get a chance to start over."
+
+I hung my head without giving a response.
+
+Alice sighed and said, "Alright, I think she was just talking. Don't dwell on it. Let's make dinner, and after that, I have to go work at the milk tea shop. Oh, I forgot to buy soy sauce on the way back. I'll go to the convenience store in the neighborhood to get some. You can watch some cartoons while I'm gone."
+
+I pretended to agree and turned on the TV. However, when Alice left, I was worried that she might go to the landlady to change the past, so I quietly followed her. I maintained a distance of about 50 meters, and she didn't notice me. There was a basketball court in between our apartment and the convenience store, where a group of people were playing basketball, with many onlookers around. The road in the neighborhood was narrow, and the edge of the basketball court was just a few meters away. As my sister walked past the court, a basketball came flying directly toward her. My heart skipped a beat, and in that moment, Alice looked in the direction of the incoming ball. Just as the ball was about to hit her, a person lunged forward, using their long arms to snatch the ball away. The crowd erupted in cheers. Then that person fell sideways at Alice’s feet.
+
+Thank goodness. I watched as the person stood up and started talking to her, only then realizing that it was the police officer she had been so concerned about. I didn't know what they were saying, but seeing her genuinely happy made me realize that she hadn't smiled since the night of the incident. Yes, she could have had a normal life if it weren't for me.
+
+I didn't continue to follow Alice. I turned back towards home. Despite it being temporary, I had come to think of this place as my home. I started searching for the address on the napkin, but I couldn't find it on the map app. Just when I didn't know how to proceed, Alice returned with the soy sauce.
 
