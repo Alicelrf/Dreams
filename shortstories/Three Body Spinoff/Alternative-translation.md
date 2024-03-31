@@ -34,7 +34,7 @@ As if to answer my question, several people came over to gesture to her at that 
 
 ## Chapter 2
 
-After getting on the vehicle, Zhu Zi still looked worried and hesitant to speak. She mentioned that she, along with some old friends we know, is now part of a new counteroffensive plan. This plan aims tosend scientists and engineers through a U-shaped wormhole to avoid Trisolaran surveillance and continue scientific experiments, as time in this U-shaped wormhole progresses ten times faster than here. On one hand, this can significantly accelerate the development of human science and technology; on the other hand, it can preserve human civilization in some way. The U-shaped wormhole allows this advanced segment of humanity to achieve rapid scientific development in another spacetime, potentially catching up with the Trisolarans and timely returning to save the rest.
+After getting on the vehicle, Zhu Zi still looked worried and hesitant to speak. She mentioned that she, along with some old friends we know, is now part of a new counteroffensive plan. This plan aims to send scientists and engineers through a U-shaped wormhole to avoid Trisolaran surveillance and continue scientific experiments, as time in this U-shaped wormhole progresses ten times faster than here. On one hand, this can significantly accelerate the development of human science and technology; on the other hand, it can preserve human civilization in some way. The U-shaped wormhole allows this advanced segment of humanity to achieve rapid scientific development in another spacetime, potentially catching up with the Trisolarans and timely returning to save the rest.
 
 I said, "This sounds a bit like science fiction, doesn't it? What is a U-shaped wormhole, and is it reliable?"
 
