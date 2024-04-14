@@ -123,3 +123,43 @@ I felt like I was going mad. I didn't care about technology, humanity, or the fu
 I was just crying, unable to listen to what they were saying or get up when they tried to pull me up. I don't know how much time passed until a few people brought a stretcher to take her to the rooftop. I was forced to let go.
 
 As SYY was carried away, those old friends stood apart in silence, each lost in their thoughts or staring blankly. No one spoke. I saw JKC's expression, heavy and sad, thinking of SYY as our important, mutual friend. Filled with resentment, I grabbed his shirt collar, "That's SYY! How can you just stand by and watch her die?" JKC turned away, withdrawing his collar from my grasp, and said quietly, "You wouldn't understand now."
+
+# Chapter 5
+
+I haven't given up yet, and I followed the direction towards SYY, going upstairs to the rooftop. Just as I arrived at the rooftop, I was grabbed from behind, but this time it wasn't Zhu Zi, but Peter who had followed me to the top floor. "Don't cause trouble for SYY. Even after you broke her foot, she's still persistently going to the experiment. What else can you do to stop her?"
+
+I watched helplessly as SYY, wearing a helmet, sat down in what seemed like a small, single-person spacecraft that Zhang Yao had brought up. I no longer had any chance to get in touch with her, to make her give up. I could only shout her name, asking her to come back. I turned to ask Peter, "Why? Why do we have to die in such a senseless way?" Peter said, "It's okay, death is just like falling asleep."
+
+I'm tired. I dare not watch SYY's death, so I sit on the last step of the staircase with my back to the rooftop. The weak sunlight and the wind are behind me, and in front of me are only the dim stairs and my shadow. I don't know how long has passed, nor whether the experiment on the other side has ended. I just really want to go home. Back to many years ago, to the place where we all grew up together when we were teenagers.
+
+Just as I was about to fall asleep, a noise from behind woke me up. I was pulled back to reality. I stood up and followed my friends to where the experimental equipment was located. The equipment was placed far from the stairs, near the edge of the rooftop. As I approached and squeezed into the crowd, I was surprised to see SYY was still alive, but her face was no longer filled with her bright smile; instead, dissatisfaction and disappointment filled the details of her face. "Why did it fail again? Didn't it pass the final test an hour ago?" I laughed out loud at this, the first time I laughed today.
+
+The technician looked at the tablet in his hand and then at SYY's helmet, indicating there was nothing he could do. Seemingly attracted by my laughter, he looked towards me. "What about you? With a brain like yours, there's no need for so many preliminary evaluations because its activity level is always high, which is rare. So if you're willing, you can be transmitted anytime. If you hadn't thought of it, and today SYY didn't pass the final evaluation, I would have had to let the next one, Peter, take over."
+
+I could feel everyone's eyes on me from the side, but I controlled my panic and didn't overthink. I said, "Okay, I'll do it. Tell me about the experimental process." I calmly watched him take off the helmet from an unhappy SYY and saw her, enduring the pain in her ankle, limping away with someone's support.
+
+The technician gestured for me to come over and explained the process of the experiment. He held the helmet in one hand and showed me a process diagram on the tablet with the other. His wrists were so thin, not like those of a man at all; what a bean sprout, and yet so tall. I listened calmly as the crowd around me gradually dispersed.
+
+At that moment, I grabbed his collar and pushed him step by step towards the edge of the rooftop. He screamed for help, but because both of his hands were holding onto things that were important to him, he couldn't save himself. I told him, "Either you put on the helmet and complete today's so-called experiment yourself, or I'll let go and you can free fall." The crowd gathered around again. I heard many panicked and fearful voices telling me not to mess around, including Zhu Zi, Peter, and W.
+
+"Stop, stop, calm down. If we don't do the experiment today, it's just a waste of this opportunity." The technician in uniform tightly held his equipment, his eyes wide open, gasping for air.
+
+"I am calm. If this experiment is so reliable, you would definitely choose to do it, right?"
+
+"Of course, I would choose the experiment. I was supposed to go anyway. It's just that according to the plan, I was responsible for all the evaluations and execution of the experiment, and at this experimental point, I was to be the last one."
+
+"I just listened to your talk about evaluations and recording experimental data. Such a simple process, I think I can do it too. You just go ahead to the wormhole. Now, put on the helmet and give me the tablet. If you move, I'll just throw you or this crappy equipment off the roof. After you put on the helmet, we'll start today's experiment."
+
+He had no choice but to hand the tablet over to me. I took the tablet with my left hand and let go of his collar with my right hand. He quickly pulled himself back to a safer spot.
+
+Peter helped him up and took the helmet. Just as he put on the helmet himself, I shouted in surprise, "What are you doing?! It's not your turn this time!" He took advantage of my distraction to take the tablet back from my hands.
+
+Peter, with an indiscernible expression, said, "Don't be afraid. This time, I'll go in your place. I studied remote sensing, after all."
+
+Before I could react, I watched as he activated the experimental program on the tablet, then suddenly clutched his chest and slowly closed his eyes...
+
+It all seemed to happen in slow motion before my eyes, yet I was completely unable to move. Zhu Zi and JKC supported Peter as he slowly fell, while the technician hurriedly tried to save the tablet during the fall. Zhang Yao and a few others hurriedly placed Peter into the giant signal transmission chamber. And I just watched.
+
+I collapsed again, and Zhu Zi ran back to comfort me.
+
+"I agree to the experiment, okay? If you all are going, then I'll go too. Is that okay?"
