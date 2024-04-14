@@ -86,3 +86,40 @@ I noticed Peter intently looking at a tablet in a corner on the first floor. As 
 So, setting aside my concerns about Peter for the moment, Zhu Zi and I recklessly dashed into the closing elevator, squeezing in with those transporting the equipment. This was my first sprint since awakening, and my limbs felt clumsy; just those few steps left me gasping for breath. Zhang Yao, spotting us join the elevator, seemed displeased at first but then showed surprise recognizing me. Ignoring his expression and any attempt at pleasantries, I directly asked about the contents of the box. He explained it was a "new signal booster for the experiment, as the previous equipment didn't provide sufficient signal strength." Zhu Zi, seemingly wary of Zhang Yao, whispered to me, "It's for sending electromagnetic waves into the wormhole. There's also another part like a helmet, to be worn by the participants, protecting the brain and capturing brain signals to be preserved..." Hearing this further fueled my fears and suspicions. Initially numbed by the overwhelming theories, the tangible presence of the equipment felt like torture devices. Gripping Zhu Zi's hand tightly, as if I could crush it, Zhu Zi's tears began to fall.
 
 Quickly, the elevator reached the 10th floor.
+
+
+# Chapter 4
+
+To walk from the 10th floor to the rooftop, you need to take the stairs. Upon reaching the rooftop, the first thing I saw was SYY, wearing what's called a helmet, laughing heartily and chatting merrily with a few people around her. SYY is a girl who usually appears aloof, so such a hearty smile is rare on her face. She's usually happy to see me, except for today. I was a bit angry.
+
+I let go of Zhu Zi's hand and strode towards SYY, feeling my anger growing stronger. "SYY!" I interrupted her conversation with a stranger in a uniform, shaking her shoulders furiously as she turned to look at me, bewildered. "Do you even know what you're doing, SYY? How can you still smile?"
+
+SYY, dazed from my shaking, looked happy to see me as if she hadn't heard what I just said. She asked, "Are you awake? I heard they wanted to wake you up a few months ago, but your body hadn't fully recovered yet. How do you feel now? Are you ready?" Her calm and confident response caught me off guard. I had expected her to be more skeptical about the plan. She ignored my questions and bombarded me with her own, leaving me speechless.
+
+A technician nearby, adjusting his smart glasses, looked at us with interest. "Your brain is in good shape, very balanced and active. I read that you study remote sensing, right? We just got word that there's a greater need for talents in this field. You're in good condition, you don't even need training like a B-level brain to pass the assessment. Brains like yours are rare now. The experiment starts in two hours, maybe get ready?"
+
+I yelled at him to "Shut up!" His interruption significantly diffused my fear and anger. It all seemed so trivial, like preparing for a minor test. My gaze returned to SYY, her excited and smiling face, and the sophisticated yet sturdy helmet on her head, feeling something obstructed deep communication with this friend I've had a rapport with since we were 12.
+
+Feeling defeated, I saw Zhu Zi's bewildered expression, my emotions becoming even more chaotic. The fear and anger returned, thinking that in an hour or two, they would send SYY to her death. I impulsively pulled SYY away from the rooftop, heading back to the staircase we came up with Zhu Zi following closely. My heart, having been dormant for a long time, pounded angrily with my intense emotions.
+
+"SYY, how can you die for something so uncertain? There's a limit to being foolish!"
+
+SYY: "I don't have time to explain everything, but you have to trust my decision. You've missed a lot while in cryo. This technology has been accepted by many. Don't worry, someone will explain it to you. You've been in cryo for 5 years, and I've missed you. But the situation is urgent, we can't delay any longer. They are getting closer to Earth every second! I don't want to live in a world ruled by aliens."
+
+"I don't believe it! SYY, you can't go like this. What if you really die? You'll never be able to come back!"
+
+SYY assured me that she believed the information sent back by the first person who went. The challenges of that world were made clear, and many talents have already been sent there. Her eyes glowed more fervently as she spoke, making me doubt even more. I kept repeating my feeble arguments, trying to convey my anxiety and urgency. But neither of us changed our stance; she remained passionate about the cause, while I was filled with fear. She firmly told me: "I know you're scared, but fear comes from the unknown and ignorance. Don't worry, you don't have to go today, it's my turn. I've prepared a long time to pass the assessment. Really, you should learn more about this project's background, I believe you would make the same choice for humanity." At that moment, familiar faces appeared at the stair turn—Peter, SXL, JKC, and W. These long-missed faces brought me some comfort.
+
+But by the time I learn all this, I might never see you again. Her confidence made me waver. Seeing my hesitation, she turned to the people below and continued, "W and Peter are going next, followed by JKC, who's still waiting for assessment. They'll explain more to you." I screamed, "I don't believe!"
+
+Yes, I can't accept you all leaving me one by one. In my agitation, I forcefully pushed SYY towards the wall. She hit the wall and fell down the stairs as those below witnessed the scene and rushed over. I was horrified by my actions.
+
+Surrounded by people checking her injuries, I hurried over. She was sitting on the stairs, her trouser leg rolled up, gripping just above her ankle tightly. My mind was a mess, with a ringing in my ears. I heard someone mention a broken foot. Regaining my senses, I felt incredibly guilty, pushed through the crowd, and crouched before SYY, looking at her swollen ankle. Tears flowed as I kept apologizing. To others, she said, "It's okay, this broken body won't be needed soon. It doesn't affect the experiment." Hearing this left me stunned. The complex negative emotions I experienced in just a few hours since waking were too much to handle.
+
+Bearing the pain, SYY looked at me seriously, "Alice, these superficial injuries, like fractures from a fall, are minor. But I must ask, even if you know this plan is right, are you unwilling to take the risk? I didn't expect you to be this stubborn and cowardly. It's surprising and disappointing. Why can't you fight with your back against the wall? There might still be a chance, and now is when we're needed the most. You can't stop me. Lastly, your brain meets all the criteria."
+
+I felt like I was going mad. I didn't care about technology, humanity, or the future anymore. I was just adamantly against it, unable to accept my friends leaving one by one. With less than two hours left, I would never see her again. But I didn't know what else to say, holding onto her injured ankle. Crying, I thought, okay, if you have to die, it might not be so bad compared to being left alone.
+
+I was just crying, unable to listen to what they were saying or get up when they tried to pull me up. I don't know how much time passed until a few people brought a stretcher to take her to the rooftop. I was forced to let go.
+
+As SYY was carried away, those old friends stood apart in silence, each lost in their thoughts or staring blankly. No one spoke. I saw JKC's expression, heavy and sad, thinking of SYY as our important, mutual friend. Filled with resentment, I grabbed his shirt collar, "That's SYY! How can you just stand by and watch her die?" JKC turned away, withdrawing his collar from my grasp, and said quietly, "You wouldn't understand now."
