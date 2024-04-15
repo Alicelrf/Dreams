@@ -142,3 +142,94 @@ This phone call snapped me back to the harsh reality. I quickly removed my work 
 I couldn't answer any of these three questions. I was momentarily at a loss. But how did she know that Xiao Ai was fine yesterday? "I don't have time to explain right now. I'll tell you later!" I grabbed my bag and rushed out of the shop.
 
 
+## Chapter Seven: A Shadow in the Sunlight
+
+As we entered the apartment building, I felt a slight relief. I let go of Xiao Ai's hand and realized my palms were sweaty. Xiao Ai looked up at me, her eyes showing both concern and a level of maturity not typical for her age. I smiled, trying to reassure her, and she mischievously blinked. I turned around to glance at the three figures from a distance, and the silhouette of the young police officer suddenly struck me. Just now, in my nervousness, I hadn't recognized him.
+
+It was the same figure I had seen at the hospital through the frosted glass, it had to be him. As if sensing my gaze, he turned to look in our direction. We locked eyes for a moment, and I panicked, turning to head into the building. Xiao Ai seemed to sense something and quietly asked, "Sis, do you know that police officer? I think he was the one who took me to the hospital the night before yesterday." I said, "Well, when I visited you at the hospital, he seemed to have been there as well. He even covered some of your medical expenses."
+
+Apart from the hospital visit, where else had I seen him? I felt there was more to our connection than just that vague encounter. Lost in thought, I suddenly noticed Xiao Ai waving her hand in front of my face. "Hey, sis, do you like him?" Her question caught me off guard. "No, it's just that..." I trailed off before saying that I think I've seen him somewhere before. I felt like I was only making it sound more suspicious. This back-and-forth only fueled Xiao Ai's curiosity. "Sis, you're blushing!" I responded with silence.
+
+The elevator was still not working, and we finally reached the top floor after climbing the stairs, both of us sweating. As we looked down the hallway, a heavy silence settled between us. The warm and light-hearted atmosphere from earlier had disappeared.
+
+Yes, we were both murderers.
+
+I quickly lowered my head to find my keys and unlock the door. I couldn't bring myself to make eye contact with Xiao Ai. Why couldn't I? I didn't know how she was coping with all of this; after all, she was just a child. I should talk to her and share some of the burden. But it seemed like I was the one who couldn't handle it. Did she really have no feeling of burden or guilt? Yeah, to be fair, she had never experienced a good day under their control. But were they truly deserving of death?
+
+We entered the apartment, closed the door, and locked it. Leaning against the thin door panel, I couldn't help but let out a sigh. This sigh caught Xiao Ai's attention.
+
+In a hushed voice, she said, "Sis, the neighbors told me that the police couldn't even find their bodies. There must be some higher power helping us." I replied softly, "But without bodies, it might be more suspicious." Xiao Ai held my hand and reassured me, "Sis, don't worry, no one suspects us." She continued, "I really appreciate what you did for me that day. If you hadn't come back and the chair hadn't broken, I had no idea what to do."
+
+Looking at Xiao Ai's clear eyes, I wasn't sure if she was genuinely thanking me or subtly reminding me that we were in this together. This thought sent shivers down my spine, and I involuntarily withdrew my hand from her grasp, saying, "I'll go cook. You can watch cartoons for a while." I quickly headed to the kitchen.
+
+Finally alone in the kitchen, I heard Xiao Ai turn on the TV to watch her favorite anime, Detective Conan. Detective Conan, I put up a bitter smile thinking of the anime. So, the two of us are like those faceless shadows in the anime, aren't we? I turned on the exhaust fan, sat down on the floor, and began to cry, as quietly as I could. What should I do? How am I going to handle this? Is this how I'll spend the rest of my life, consumed by this guilt?
+
+At that moment, I didn't know that Xiao Ai was hiding by the kitchen door, secretly listening to me crying beneath the sound of the exhaust fan.
+
+## Chapter Eight: New Evidence
+
+“Come in!” Officer Feng said as he handed over a report to PH. 
+
+"Take a look at this. It's a report just sent from the forensics lab. They found a high concentration of sedative drugs in a water cup from the crime scene,"
+
+"Roofied? Could it be that one of the victims left them in the cup on a previous day?" PH asked while swiftly scanning through the report summary and examining the scanned images of the crime scene and test results.
+
+Officer Feng added, "Look at the last page, the lab-work; this drug isn't the kind meant to be dissolved in water; it's originally in capsule, and it's a prescription medication. I checked with the investigative team, and they didn't find any prescription bottles in their apartment." The experienced old detective seemed particularly excited, perhaps because of this new evidence.
+
+"So, it's highly likely the victims were drugged and lost consciousness, then thrown from the top floor, right? Are there any unfamiliar fingerprints on the cup?"
+
+"Since we haven't found the bodies yet, we compared it with common items in the room. No unfamiliar fingerprints. However, if the killer was wearing gloves, it would solve that problem," Officer Feng said, waving his hand and continuing to pace around the room. "Assuming the cause of death was drugging and falling from the top floor, the profile of the killer is entirely different from what we initially thought—violent criminals, loan sharks, or the underworld. Poisoning suggests that the killer was someone known to the victims. Poisoning is almost certainly the choice of a physically and psychologically disadvantaged offender, and the majority are females."
+
+PH admired Officer Feng's keen and experienced investigative skills. "The victims known to the offender are vulnerable and female. That's probably just the child. I found out during my investigation that the two victims treated the child very poorly, constantly abusing her. Moreover, the female victim wasn't the child's biological mother. But how could an 8-year-old child throw two adults from the top floor, unless someone helped her?"
+
+"And there's that female college student living next door alone. Didn't we just see her this afternoon? I felt like she was acting a bit evasive," Officer Feng said.
+
+PH thought about the young woman they had met that afternoon and shook his head. He believed it would be difficult for her alone to throw two unconscious adults from the building. Wait a minute, didn't I question her on the night of the crime scene investigation to find eyewitnesses? Why did I forget such an important detail? PH began recalling the events of the night. He had undergone specialized training, and he should have remembered crucial details vividly, but there were strange gaps in his memory regarding this young woman.
+
+Officer Feng noticed PH's contemplation and said, "When you were investigating the scene that night, didn't you meet this female college student?"
+
+PH replied, "Yes, I had just arrived at the scene, finished drawing the outline of the body, and the second typhoon started. We had to retreat into the building. I started asking the neighbors for information about the victims. At that time, we thought it was a suicide by jumping off the building, and the rain was particularly heavy, so there was little protection for the bodies. Once I learned the identity of the victims, I rushed to their apartment and saw the unconscious child. Just as I was about to take her to the hospital, I heard someone shouting that the bodies were missing."
+
+"When did you meet the neighbor then?"
+
+"As soon as I heard the bodies were missing, I realized it might be a murder, so I requested backup from the police station. Because of the weather, my colleagues took a while to arrive. I couldn't leave the crime scene, so I called 120 to arrange for an ambulance to take care of the child. While waiting for the ambulance, the child was temporarily taken care of by a woman in the building. Then, I started knocking on the door of the neighboring female college student. Since there were only two families on the top floor, I was very eager to find out if she heard any unusual sounds. I knocked for quite some time before someone opened the door. She appeared to have just woken up with messy hair and claimed to have been sleeping for the past few hours, hearing nothing."
+
+PH hesitated for a moment, thinking, "Does a normal college student sleep so early and soundly?” But he didn't bring up this question with Officer Feng. "But from the time I arrived on the top floor to the moment the bodies disappeared, she didn't have the time or opportunity to escape my notice and run off to deal with the bodies. That corridor and the stairs were the only ways for her to go downstairs. I still don't know her alibi for the time of the crime, but she does provide an alibi for the time when the bodies disappeared."
+
+Officer Feng agreed, saying, "The neighborhood had a power outage due to the typhoon, and all the old street surveillance cameras weren't working. Nobody knows how the bodies magically disappeared. With the current evidence, we have no prime suspect, but I can't shake off the feeling that the female college student is somewhat suspicious. She and the child might both be involved in this case. That said, we can't officially interrogate her at the moment. Tomorrow, you should pay her another visit, but don't raise her suspicions. If she's indeed involved in the crime, she might have accomplices. We still haven't found the bodies, and if we alert them now, it might make it harder to locate them."
+
+PH nodded in agreement and got ready to leave Officer Feng's office. 
+
+At that moment, Officer Feng's attention was drawn to a pile of photos from the victims' homes on his desk. He picked up one particular photo and gestured for PH to come over. PH followed his gaze and saw a typical office chair with wheels in the top left corner of the photo. However, it was slightly tilted because one of the wheels had come off.
+
+
+## Chapter Nine: The Choice
+
+With a start, I stared at the plump lady who had appeared in the living room, unsure how to respond. The lady is dressed in a low cut dress and her boots are of impressive size. What was she doing here? How much had she overheard? Would she tell the police? 
+
+"If you don't like how things played out, you may find the past is more malleable than you expect. If you want to learn more, come to this address before midnight tonight. Wait longer, and I won't be able to help you," she said.
+
+With that, she pulled out a slender eyebrow pencil and a pristine white napkin from her handbag and quickly wrote down an address. She left the napkin on the coffee table and strode confidently back through the front door.
+
+Alice and I both stood there in shock, unable to say a word. What was she talking about? The past was malleable? What did that mean? It all still seemed surreal. As we continued to stare at the front door she'd passed through, from the corner of my eye, I could see Alice struggling to hide her joy. I knew it, she regretted helping me.
+
+Picking up the napkin, I caught the scent of lingering perfume. As I presented it to Alice I asked, "Sis, if she can really change what's happened, would you still help me this time?"
+
+She looked thoughtful, and led me to the sofa, taking a moment to gather her thoughts, "Xiao Ai, I don't think I can bear the burden of this guilt. I'm sorry. If there's a chance to start over, I hope neither of us has to have blood on our hands." She continued, "I don't want to help you by resorting to murder, I want to find another way to take you away from them. To take you away from here."
+
+I wasn't surprised, she had already done so much for me, and now she was carrying a burden that wasn't hers. But I couldn't believe in the future she spoke of. "How will you take me away? You're still renting and studying here."
+
+"I'll graduate next year, and then I can move to a distant city to find a job. I can secretly bring you along if we get a chance to start over."
+
+I hung my head in silence.
+
+Alice sighed, "Alright, I think she was just talking. Don't dwell on it. Let's make dinner, and after that, I have to go work at the milk tea shop. Oh, I forgot to buy soy sauce on the way back. I'll go to the convenience store in the neighborhood to get some. You can watch some cartoons while I'm gone."
+
+I pretended to agree, turning on the TV. However, when she left, I was worried that she might go to the landlady to change the past, so I quietly followed. I maintained a distance, maybe 50 meters, and she didn't notice me. She passed by the basketball court in between our apartment and the convenience store, where a group of people seemed to be playing a game with a few onlookers closely watching them play. 
+
+The road in the neighborhood was narrow, and the edge of the basketball court was just a few meters away. As my sister walked past the court, a rogue pass came flying directly towards her. My heart skipped a beat, and in that moment, Alice looked in the direction of the incoming ball. Just as it was about to hit, someone lunged, using their long arms to snatch the ball from the air, and fell sideways to Alice's feet as the crowd erupted in cheers.
+
+Thank goodness! I watched as the person with the ball stood up and began speaking to her, only then realizing that it was the police officer she had been so concerned about. I didn't know what they were saying, but seeing her genuinely happy made me realize that she hadn't smiled since the night of the incident. Yes, she could have had a normal life if it weren't for me.
+
+I stopped following Alice, I turned back towards home. Even though it wasn't my apartment, and despite it being temporary, it was already more of a home than that other place. I started searching for the address on the napkin, but I couldn't find it on the map app. As I began to realize that I didn't know what to do, Alice returned with the soy sauce.
+
