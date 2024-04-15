@@ -201,4 +201,33 @@ PH nodded in agreement and got ready to leave Officer Feng's office.
 At that moment, Officer Feng's attention was drawn to a pile of photos from the victims' homes on his desk. He picked up one particular photo and gestured for PH to come over. PH followed his gaze and saw a typical office chair with wheels in the top left corner of the photo. However, it was slightly tilted because one of the wheels had come off.
 
 
+## Chapter Nine: The Choice
+
+With a start, I stared at the plump lady who had appeared in the living room, unsure how to respond. The lady is dressed in a low cut dress and her boots are of impressive size. What was she doing here? How much had she overheard? Would she tell the police? 
+
+"If you don't like how things played out, you may find the past is more malleable than you expect. If you want to learn more, come to this address before midnight tonight. Wait longer, and I won't be able to help you," she said.
+
+With that, she pulled out a slender eyebrow pencil and a pristine white napkin from her handbag and quickly wrote down an address. She left the napkin on the coffee table and strode confidently back through the front door.
+
+Alice and I both stood there in shock, unable to say a word. What was she talking about? The past was malleable? What did that mean? It all still seemed surreal. As we continued to stare at the front door she'd passed through, from the corner of my eye, I could see Alice struggling to hide her joy. I knew it, she regretted helping me.
+
+Picking up the napkin, I caught the scent of lingering perfume. As I presented it to Alice I asked, "Sis, if she can really change what's happened, would you still help me this time?"
+
+She looked thoughtful, and led me to the sofa, taking a moment to gather her thoughts, "Xiao Ai, I don't think I can bear the burden of this guilt. I'm sorry. If there's a chance to start over, I hope neither of us has to have blood on our hands." She continued, "I don't want to help you by resorting to murder, I want to find another way to take you away from them. To take you away from here."
+
+I wasn't surprised, she had already done so much for me, and now she was carrying a burden that wasn't hers. But I couldn't believe in the future she spoke of. "How will you take me away? You're still renting and studying here."
+
+"I'll graduate next year, and then I can move to a distant city to find a job. I can secretly bring you along if we get a chance to start over."
+
+I hung my head in silence.
+
+Alice sighed, "Alright, I think she was just talking. Don't dwell on it. Let's make dinner, and after that, I have to go work at the milk tea shop. Oh, I forgot to buy soy sauce on the way back. I'll go to the convenience store in the neighborhood to get some. You can watch some cartoons while I'm gone."
+
+I pretended to agree, turning on the TV. However, when she left, I was worried that she might go to the landlady to change the past, so I quietly followed. I maintained a distance, maybe 50 meters, and she didn't notice me. She passed by the basketball court in between our apartment and the convenience store, where a group of people seemed to be playing a game with a few onlookers closely watching them play. 
+
+The road in the neighborhood was narrow, and the edge of the basketball court was just a few meters away. As my sister walked past the court, a rogue pass came flying directly towards her. My heart skipped a beat, and in that moment, Alice looked in the direction of the incoming ball. Just as it was about to hit, someone lunged, using their long arms to snatch the ball from the air, and fell sideways to Alice's feet as the crowd erupted in cheers.
+
+Thank goodness! I watched as the person with the ball stood up and began speaking to her, only then realizing that it was the police officer she had been so concerned about. I didn't know what they were saying, but seeing her genuinely happy made me realize that she hadn't smiled since the night of the incident. Yes, she could have had a normal life if it weren't for me.
+
+I stopped following Alice, I turned back towards home. Even though it wasn't my apartment, and despite it being temporary, it was already more of a home than that other place. I started searching for the address on the napkin, but I couldn't find it on the map app. As I began to realize that I didn't know what to do, Alice returned with the soy sauce.
 
