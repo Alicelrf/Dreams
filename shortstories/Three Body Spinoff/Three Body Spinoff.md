@@ -2,15 +2,15 @@
 
 ## Chapter 1 2014.12.28
 
-Preamble: Whether fortunately or unfortunately, we are all going to lose the world we are familiar with.
+Preamble: Whether fortunate or unfortunate, we all lose the world we are familiar with.
 
-Waking up from a cold and lengthy dream, I don't need to recall out of nowhere who I am, because I see a familiar and affectionate face of concern. Zhu Zi's face, to me, will not change, because having known her for so many years, I can always immediately see that familiar friend in her dark, shining eyes. If she remains unchanged, I can thus smoothly find myself.
+Waking up from a cold and lengthy dream, I felt no need to reach far to remember where I was, because I saw a familiar and affectionate face of concern. Zhu Zi's face, to me, will never change, because knowing her for so many years, I can always see my friend through her dark and shining eyes. As she remains unchanged, I easily found myself from within the cloudy haze of my sleep.
 
-"Zhu Zi, where are we? What happened?" I found myself lying in a small compartment like an ambulance, with only Zhu Zi beside me.
+"Zhu Zi, where are we? What happened?" I was lying in a small compartment like an ambulance, with only Zhu Zi beside me.
 
-Hearing me call her name, she seemed much relieved, a slight smile on her face, and she told me, "Five years ago, you were seriously injured during flight training. The doctors chose to put you into cryosleep to slowly repair your body. They say you've recovered about 90%, because the world is now in a state of emergency, they woke you up early. It's likely that the sleep center can't continue operating. This transport vehicle will take us to where I live now."
+Hearing my voice call her name, she seemed much relieved, a slight smile on her face, and she told me, "Five years ago, you were seriously injured during flight training. The doctors chose to put you into cryosleep to slowly repair your body. They say you've recovered about 90%, but since the world is now in a state of emergency, they woke you up early. It's likely that the sleep center can't continue operating. This transport vehicle will take us to where I live."
 
-Her words were densely packed with information, and I instantly remembered many scenes from past flight training, but I might have lost the memories before and after the accident. Before I was injured, I remember it was the golden era of peace in the Deterrence Epoch.
+Her words were densely packed with information, and as she kept talking I remembered many scenes from past flight training, but my memories before and after the accident were blurry and abstract. Before I was injured, I remember it was the golden era of peace in the Deterrence Epoch.
 
 "So how do you feel now? Is there any discomfort? Do you want to rest a bit more? It will be a while before we arrive."
 
