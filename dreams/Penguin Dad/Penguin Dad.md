@@ -59,3 +59,28 @@ Penguin Dad gently held her heart, and her soul. He absorbed all her hurt, and a
 
 Although Penguin Dad was sad to see her go, he cried great happy tears when he learned why she left. Penguin Dad never stopped loving her, and his love keeps her heart warm to this day.
 
+# Chapter 3
+
+Penguin Dad was always surrounded by the penguins he took care of, he met many animals as a Penguin Dad, a little banana coloured frog from Panama, a energetic monkey from India, and a studious beaver from Canada.
+
+The little frog fell in love with Penguin Dad, the monkey always looked up to Penguin Dad, and the studious beaver tried hard to be like Penguin Dad.
+
+He taught each animal everything he knew, everything he could. He helped them find fish, and showed them how to survive in the cold of the artic. But he also showed them how to live, about philosophy, and how to live a good life.
+
+When traveling with the animals, Penguin Dad found a baby whale who was scared and alone.
+
+The baby whale was pretending he was ok, that he had everything in control, but Penguin Dad knew that something was wrong. Penguin Dad started teaching him the penguin language, and invited him to join the rest of the animals to find some good fish.
+
+The baby whale accepted, and let the rest of the animals ride on his back, together they caught many fish. The baby whale often fought with the monkey, they were very different animals, and saw things too differently. But good fish, and a little guidance from Penguin Dad kept everyone in harmony.
+
+The baby whale learned a lot from Penguin Dad, and the baby whale introduced Penguin Dad to a lot of rare animals, each with interesting things to say. They also traveled to many new and fun places on the back of the baby whale.
+
+Although the baby whale was smart and strong, and pretended to be brave, he was often afraid. He was too afraid to move, to speak, or even to blink. He would freeze still in the water. Penguin Dad had often felt the same, so he shared what he knew of what the baby whale could do. Penguin Dad sat with him each and every time, and quietly talk or wait until he felt better.
+
+The baby whale and Penguin dad would play games with eachother every day and kept eachother company.
+
+One day the baby whale grew too large, he was no longer a baby. He had learned enough about how to handle his fear alone. He knew it was time to leave, but promised he would visit from time to time.
+
+Penguin Dad was alone again.
+
+# Chapter 4
