@@ -1,4 +1,5 @@
 # characters
+
 * Penguin Dad
 * Seagull
 * Penguin Step-mom
@@ -69,7 +70,7 @@ He taught each animal everything he knew, everything he could. He helped them fi
 
 When traveling with the animals, Penguin Dad found a baby whale who was scared and alone.
 
-The baby whale was pretending he was ok, that he had everything in control, but Penguin Dad knew that something was wrong. Penguin Dad started teaching him the penguin language, and invited him to join the rest of the animals to find some good fish.
+The baby whale was pretending he was ok, that he had everything in control, but Penguin Dad knew that something was wrong. Penguin Dad looked over the Whale's shoulder and asked what he was writing. Penguin Dad started teaching him the penguin language, and invited him to join the rest of the animals to find some good fish.
 
 The baby whale accepted, and let the rest of the animals ride on his back, together they caught many fish. The baby whale often fought with the monkey, they were very different animals, and saw things too differently. But good fish, and a little guidance from Penguin Dad kept everyone in harmony.
 
@@ -84,3 +85,37 @@ One day the baby whale grew too large, he was no longer a baby. He had learned e
 Penguin Dad was alone again.
 
 # Chapter 4
+
+Penguin Dad was heartbroken for many months after the Argentenian Penguin left him. Although he had never had a mate before the Argentenian Penguin, and he was simply single again, he felt lonlier than he ever had before. He felt sad and lost in the world, and went searching for company.
+
+He met a Sealion who was exhausted. The Sealion was constantly chased by a killer whale, and to stave her off she kept throwing all the fish she caught behind her to get some breathing room.
+
+The Sealion and Penguin Dad found that they enjoyed eachother's company, and they spent many years together. They cooked, danced, and worked hard. They explored the world together, and climbed through antartic trails while discussing their philosophies, but they never agreed.
+
+Many times the killer whale would come back for more fish, draining the Sealion of her reserves. Penguin Dad didn't know it was happening, and the Sealion kept it a secret. It slowly ate away at the Sealion and caused many fights between her and Penguin Dad.
+
+Eventually the Sealion told Penguin Dad what was going on, and he decided to help her. He told the Sealion everything she would need to tell the Killer Whale to keep her away, and it worked! She was finally free of the Killer Whale, all her fishes were her own.
+
+The Sealion, flush with fish, decided to move to another penguin city in Antartica, and said her goodbyes. They tried to stay in touch with eachother, despite the distance, but eventually their relationship crumbled when a disease spread throughout the penguin cities.
+
+At this time, the Penguin Step-Mom was furious with Penguin Dad, and working on removing from the company they built together, and the Baby Whale was considering ending everything. Penguin Dad was absolutely devastated, terrified, and couldn't handle all of the bad news. Seeing him in this state, the Sealion broke things off with Penguin Dad, and left him forever. Penguin Dad had never felt so alone in his life, so isolated from everything that gave him meaning and purpose, and so alien to the world. Nothing felt real to him anymore, like the world was simply fake, and that he never really belonged here. He thought nobody could help him in the world. He thought nobody could save him. He thought he could only try to save himself. 
+
+The Sealion, healed from her experience, went on to live a happy life on her own, and Penguin Dad was left alone again.
+
+Penguin Dad never spoke to the Sealion again.
+
+
+# Chapter 5
+
+Penguin Dad's mentor, Fish Master (a true master fisherman among penguins), noticed how other animals gathered around Penguin Dad. He thought that he would be a good addition to a new team he was forming with the Penguin Step-Mom.
+
+Penguin Step-Mom was already good friends with Penguin Dad. Penguin Dad had mentored her in school, and now they played squash together (a challenging sport for penguins).
+
+Fish Master wanted Penguin Dad to join their team, and the Penguin Step-Mom did too, so they joined forces and decided to build a company together.
+
+Together, they drew in many other animals, 
+
+
+
+
+
