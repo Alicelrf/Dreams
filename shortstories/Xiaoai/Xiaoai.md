@@ -277,3 +277,52 @@ A young woman in her twenties and a little girl appeared, panting, in the lobby 
 "Beep, beep, beep," but no one answered. Both of them showed tired and anxious expressions. "Alice, what do we do? This is the last apartment building with a Unit 2103. Was that fat auntie just messing with us?" the child said angrily. The young woman, catching her breath, didn't respond directly. Instead, she pressed the apartment doorbell again.
 
 "Beep—hello, who's there?" A woman's unfamiliar voice answered; it wasn't the landlord.
+
+
+## Chapter Eleven
+
+Finally, around nine in the evening, the two exhausted girls found the person they were looking for, or rather, the urban demon they sought.
+
+However, it was not Jessica who opened the door but a very slender, tall woman with long, burgundy-dyed hair. Her face was neither beautiful nor young, but she had a special allure and mystery. She introduced herself as Kate, a friend of Jessica's. Usually, Ai was a very sensitive child, but she seemed mesmerized by this woman, staring intently.
+
+Kate let them in, mentioning that Jessica was in her room preparing for a masquerade, and then walked away on her own. Alice, not daring to stop, walked deeper into the spacious flat as if she knew exactly where Jessica's room was.
+
+Pushing open a door, she saw the voluptuous Jessica already dressed in a sexy dress, with various gowns and stockings scattered all over the room. She was applying lipstick in front of the mirror.
+
+Jessica merely said, "You're here," and continued with her makeup.
+
+"Um, please help me," Alice said, explaining the entire situation. Jessica seemed to be listening carefully, yet also as if she wasn’t paying attention.
+
+At some point, Kate had already come over. She leaned seductively against the doorframe, smoking a long lady’s cigarette, looking like a leopard resting in a tree.
+
+Jessica finally finished fixing her hair and said, "Alright, I’ll take you both back to three days ago. You decide whether to find an alibi witness for yourself or figure out a way to prevent your past selves from committing the act."
+
+"Go back to three days ago? Who are you?" Alice asked, looking at the woman before her, now even more mysterious in her masquerade outfit.
+
+"No need to be afraid of knowing, both of us are urban demons. So I don’t care about human morals and laws."
+
+"Ah, what’s an urban demon?" Ai asked fearfully.
+
+"Demons aren’t that different from humans. Some dislike being disturbed or aren't good at disguising themselves, so they live in remote places. Others, like us, thrive in crowded areas," Kate answered, though it seemed she was hiding something. Looking at these two middle-aged women, getting ready for a masquerade late at night, it made me wonder if they really were just socialite demons.
+
+"Then why are you helping us?"
+
+"Ah, so many questions! The time you can stay after crossing back is limited. It’s only until midnight. It’s already ten o’clock now," Kate said impatiently.
+
+Alice said, "Alright, I'll quickly come up with a plan."
+
+Jessica told Alice, "Come with me."
+
+Watching the two of them go into a small room, only Ai was left quietly observing Kate as she inspected her eyelashes in the mirror. Kate, seeing Ai through the mirror, smiled and said, "Wouldn't it be better for you if those two people were dead? Why do you want to change the past?"
+
+Ai replied, "My sister is the only one who’s been kind to me. I don’t want her to live in fear for the rest of her life. I want to go back just to give her an alibi."
+
+Kate continued, "If she goes back and stops everything from happening, she gets a new start. But you’ll have to live with those two jerks again. Think it over carefully. I've seen many people; those who keep promises are very rare. She owes you nothing. She might start a family in a few years, have kids, and really come back for you? Your mom didn’t come back for you, did she?"
+
+Seeing Ai’s expression drop, Kate added, "How about this, we'll lock up the original timeline’s Alice somewhere so she gets back to the apartment late. That way, she doesn’t help you complete the murder. Then I'll go back and take care of those two people. Wouldn't that make everyone happy?"
+
+Ai looked at Kate, unsure whether to trust her. Ai said, "If that’s what you think, why not just tell Jessica directly?" But at that moment, Jessica and Alice emerged from the small room.
+
+Alice said, "We’ve come up with a rough plan. After crossing back, Jessica and I will first go to stop the past Ai. Then Kate and the current Ai will delay my past self from reaching the scene. This way, we can avoid the chaos of meeting our past selves."
+
+Ai looked at everyone, ready to suggest another arrangement but saw Kate smiling, hinting to keep quiet. She hesitated for a moment and remained silent.
