@@ -281,11 +281,11 @@ A young woman in her twenties and a little girl appeared, panting, in the lobby 
 
 ## Chapter Eleven
 
-Finally, around nine in the evening, the two exhausted girls found the person they were looking for, or rather, the urban demon they sought.
+Finally, around nine in the evening, the girls, both exhausted, found the person they were searching for, or rather, the urban demon they sought.
 
-However, it was not Jessica who opened the door but a very slender, tall woman with long, burgundy-dyed hair. Her face was neither beautiful nor young, but she had a special allure and mystery. She introduced herself as Kate, a friend of Jessica's. Usually, Ai was a very sensitive child, but she seemed mesmerized by this woman, staring intently.
+Or so they thought... It was not Jessica who greeted them at the door but a very slender, tall woman with long, burgundy-dyed hair. Her face was neither beautiful nor young, but she had a strange allure and mystery about her. She introduced herself as Kate, a friend of Jessica's. Usually, Ai was a very sensitive and shy child, but she seemed mesmerized by this woman, staring intently.
 
-Kate let them in, mentioning that Jessica was in her room preparing for a masquerade, and then walked away on her own. Alice, not daring to stop, walked deeper into the spacious flat as if she knew exactly where Jessica's room was.
+Kate stepped aside to let them in, mentioning that Jessica was in her room preparing for a masquerade, and then walked away on her own. Alice, not daring to stop, walked deeper into the spacious flat as if she knew exactly where Jessica's room was.
 
 Pushing open a door, she saw the voluptuous Jessica already dressed in a sexy dress, with various gowns and stockings scattered all over the room. She was applying lipstick in front of the mirror.
 
