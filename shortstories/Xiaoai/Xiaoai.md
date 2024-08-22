@@ -236,33 +236,39 @@ I stopped following Alice, I turned back towards home. Even though it wasn't my 
 
 ## Chapter 10: The Next Intersection
 
-**July 22, 6 PM.** The typhoon waning, the sky finally cleared.
+**July 22, 6 PM.** 
 
-Alice returned home to prepare dinner. Visualizing the ball hurtling towards her, she thought if it weren't for Peter, she would have been hit. In that whole moment, the two of them seemed so ordinary and normal, a young man and woman meeting on a summer evening. Now that the magic was over, and tomorrow she might have to face his more severe questioning as a police officer.
+The typhoon waning, the sky finally cleared.
+
+Alice returned home to prepare dinner. Recalling the ball hurtling towards her, she saw clear in her mind Peter leaping into action to save her. For that whole moment, life felt so ordinary and normal, a young man and woman innocently meeting on a summer evening. Now the magic was over, and tomorrow she might see his other side, his more severe and serious questioning as a police officer.
 
 Xiao Ai barely heard Alice let out a quiet sigh and walked toward the kitchen.
 
-"Big sister, let's go find Auntie Landlord," Xiao Ai said, hugging Alice who was cooking.
+"Big sister, let's go find Auntie Landlord," Xiao Ai said, hugging Alice while she cooked.
 
-"Okay, let's go, but after dinner. By the way, her name is Jessica; she doesn't like being called Auntie," Alice replied, somewhat surprised by the change she noticed in Xiao Ai. But the thought of finding the landlord cast a heavy cloud of confusion over her heart. Hope for desperate people is like a poison.
+"Okay, we can go, but after dinner... Also, you should call her Jessica; she doesn't like to be called Auntie," Alice replied, somewhat surprised by the sudden change in Xiao Ai. But that thought vanished quickly in the face of seeing the landlord again. The idea cast a heavy cloud of confusion over her heart. Hope for the desperate is like a bitter sweet poison.
 
-**July 22, 7 PM.** The sunset was breathtakingly beautiful. They set out.
+**July 22, 7 PM.** 
 
-"How can this be?! The map app doesn't have an address for Unit 2301 at 282 Tanning Street?! This street doesn't even go up to number 100!"
+Against a beautiful sunset, They left for the landlord's home.
 
-"Maybe the map hasn't been updated? Let's go to that street and see if there's a tall building."
+"How can this be?! The map doesn't have an address for Unit 2301 at 282 Tanning Street?! This street doesn't even go up to number 100!"
+
+"Maybe the map hasn't been updated recently? Unit 2301 right? Let's go to that street and see if there's a tall building."
 
 "That's a good idea. There aren't many tall apartment buildings in this small city. This street runs north to south, so let's start from the northern part of downtown and head south."
 
-They initially thought it would be simple to track down the address, but the reality was more complicated, and time was running out! Alice and Xiao Ai put on their sneakers and jogged to the bus stop.
+They initially thought it would be a simple task to track down the address, but the reality was less forgiving, and time was quickly running out. Alice and Xiao Ai put on their sneakers and jogged to the bus stop.
 
-Twenty minutes later, they got off at their stop and started looking for a building with more than 23 floors along Tanning Street.
+In twenty minutes, they got off at their stop and started looking down Tanning Street for a building with more than 23 floors.
 
-"Do you think that tall building across the street might be it?"
+"Do you think that one across the street might be it?"
 
-"But that looks like an office building, and if it has 23 floors, they're probably all offices."
+"That one looks like an office building, it might have 23 floors, but they're probably all offices."
 
-**8 PM.** Fortunately it was summer, and the sun still lingered in the sky. But the two of them were gradually losing their energy in the heat and fading daylight. Alice watched Xiao Ai struggling to keep up and hesitated about whether to continue searching. Xiao Ai, showing surprising resilience, comforted Alice by saying, "Maybe we'll find the building at the next intersection!" Alice smiled, wiped her sweat, and said, "I didn't realize you had such stamina. I'm the one slowing us down."
+**8 PM.** 
+
+Fortunately it was summer, and the sun still lingered in the sky. But the two of them were gradually losing their energy in the heat and fading daylight. Alice watched Xiao Ai struggling to keep up and hesitated about whether to continue searching. Xiao Ai, showing surprising resilience, comforted Alice by saying, "Maybe we'll find the building at the next intersection!" Alice smiled, wiped her sweat, and said, "I didn't realize you had such stamina. I'm the one slowing us down."
 
 **9 PM.** The city lights hummed as they began to light.
 
