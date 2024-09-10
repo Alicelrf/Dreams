@@ -326,3 +326,42 @@ Ai looked at Kate, unsure whether to trust her. Ai said, "If that’s what you t
 Alice said, "We’ve come up with a rough plan. After crossing back, Jessica and I will first go to stop the past Ai. Then Kate and the current Ai will delay my past self from reaching the scene. This way, we can avoid the chaos of meeting our past selves."
 
 Ai looked at everyone, ready to suggest another arrangement but saw Kate smiling, hinting to keep quiet. She hesitated for a moment and remained silent.
+
+
+## Chapter 12: The Farewell Before the Storm
+
+Jessica possessed the ability to transport people or objects back to any time point within the last three days. She could also blur a small segment of human memory to avoid trouble. Kate, on the other hand, had the power to teleport people or objects within a certain distance. Years ago, they had met by chance and realized that, if they worked together, the possibilities were endless. Their temperaments, although both monstrous, complemented each other well, and over time, they became close friends. 
+
+Jessica belonged to a type of monster that could only gain anything beyond basic sustenance from consuming humans, such as protein. Thus, they chose to slowly absorb the essence of the world, accumulate virtue, and conceal their identities, refraining from attacking humans recklessly. But Kate was different. Kate was a type of monster that could rapidly increase her power by eating humans or even other monsters. Although this type of monster sounded terrifying, they were often quickly destroyed due to going insane or causing human society to become alarmed and retaliate. If not for Jessica, Kate might have long been eliminated for eating people. Though the human forms Kate and Jessica took were around the same age, Jessica had been cultivating as a monster far longer than Kate.
+
+Now, these two elegantly dressed middle-aged women stood on the rooftop of an old apartment building, full of surprise.
+
+"This is wrong. Why are you and I here in this rundown building? Where are those two kids? Weren't you supposed to take Little Ai to the bubble tea shop to stop the original Alice?" Jessica asked Kate.
+
+Kate was also surprised, but she seemed hesitant to speak.
+
+"Ah-ha, I get it now! It must be your doing! It has to be you! Did you relapse and want to eat those two?" Jessica suddenly realized and was furious.
+
+"Hey, how could this be my doing? Don't accuse me unfairly. If I had, why wouldn't I have sent you there too? Besides, have I eaten anyone in the past 20 years?" Kate exaggeratedly feigned grievance. She then added, "You know, it's been 30 years since we last stayed here. This building is really old now, hardly changed, and no one has renovated it."
+
+Seeing Kate playing the nostalgia card, Jessica's anger subsided a little. "Alright, as long as I'm watching you, you won't be able to do anything. If you try, I'll send you back to the original timeline."
+
+Kate could only sulkily wander around the old rooftop. She wasn't sure what was happening since she had only intended to bring Little Ai here. Now, with Jessica watching, it was really difficult to make a move. To Kate, devouring these troublesome villains carried no moral burden; it was entirely a good deed, part of the natural cycle of matter and energy. She couldn't understand why Jessica had to be so stubborn and rigid. Maybe it was because Jessica couldn't cultivate in this way, and she was just jealous. But it was best not to provoke her.
+
+"Got it, Jessy. Should I go to the coffee shop now and bring Alice here?" 
+
+Jessica stood on the rooftop, looked at the darkening sky, and hesitated. It seemed like there were still about thirty minutes before the typhoon would start. Should they go to the stuffy apartment and wait for Alice to arrive? What if Alice didn't make it in time? Should she let Kate go? Jessica said, "Let's wait a bit longer. Alice should be able to make it here from the bubble tea shop in time." The sudden change made Jessica wary of Kate's self-control; it was best not to let her out of sight. Kate shrugged, indicating she didn't mind. Moreover, Jessica had a vague feeling that the recent news about the missing bodies might be connected to Kate and herself.
+
+Meanwhile, Little Ai and Alice were staring at each other in front of the bubble tea shop.
+
+Seeing Alice here made Little Ai happy. "With two Alices here, nothing will change, right? Wait, if Alice isn't there, will I be able to complete the task? If I only drop one, won't I end up worse off?" Little Ai's mind raced, both excited and nervous at this sudden change. Alice, on the other hand, was unsure how to contact those two—accurately speaking, those two monsters—because phones couldn't time travel, and none of them had brought one, only exchanging landline numbers.
+
+So, Alice quickly led Little Ai to a nearby payphone to try calling her apartment's landline. No one answered. It seemed the landlord hadn't entered her rented apartment to wait. There was no other way; as the sky darkened, Alice said, "Little Ai, I have no choice but to rush back. The typhoon is coming. You stay in the bubble tea shop, and stay with the me from three days ago. If you can't find me, don't wander around; it's dangerous during a typhoon. We'll come get you tonight. If the power goes out, don't be afraid; there's a backup flashlight in the emergency kit."
+
+Watching Alice hurriedly leave, Little Ai thought, "If only something could trip Alice up." She lowered her head and said, "So, we're going to be separated? Can't you just ignore what's happening over there?" Alice hesitated, crouched down, and hugged Little Ai. "Trust me, everything will be alright." She patted her back, then got up and ran in the direction of her home.
+
+Watching Alice's figure gradually disappear, Little Ai couldn't hold back her tears. She was alone again. It was always like this. She thought of the mother who had left and never returned, of the possibility of living with those two bastards again, of how the brief peace she'd exchanged for three days was about to end, and of Alice's stubborn determination to "correct" the "mistake." Little Ai was filled with resentment. This wasn't fair at all. Why was she the only one who had to bear this outcome?
+
+As she thought, Little Ai walked to the entrance of the bubble tea shop. Through the glass door, she saw Alice from three days ago, still working at the counter making bubble tea. This Alice was innocent. This Alice had selflessly helped her back then. Little Ai felt a deep sense of grievance and wanted to throw herself into this Alice's arms and cry her heart out, forgetting that she had just been abandoned by her.
+
+At that moment, a thought flashed through her mind: there should be another Kate in this city right now!
