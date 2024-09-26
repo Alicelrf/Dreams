@@ -277,3 +277,35 @@ A young woman in her twenties and a little girl appeared, panting, in the lobby 
 "Beep, beep, beep," but no one answered. Both of them showed tired and anxious expressions. "Alice, what do we do? This is the last apartment building with a Unit 2103. Was that fat auntie just messing with us?" the child said angrily. The young woman, catching her breath, didn't respond directly. Instead, she pressed the apartment doorbell again.
 
 "Beep—hello, who's there?" A woman's unfamiliar voice answered; it wasn't the landlord.
+
+
+**Chapter Thirteen**
+
+Xiao Ai turned around and walked toward the phone booth, dialing the number to Kate's apartment.
+
+"Hello," Kate's voice came through the phone. Xiao Ai, gathering her courage, said, "Kate, this is Xiao Ai. You don't know me yet, but three days from now, you told me you'd help me get rid of the two bad people living next to Jessica's rental house. Please, help me. I really can't live with them anymore." Xiao Ai's voice choked with emotion.
+
+Xiao Ai believed that Kate, having spent so much time with the time-traveling Jessica, would understand immediately. Kate did not disappoint. After a brief silence, she said, "That does sound like something I'd say. Did I tell you this in private?"
+
+Xiao Ai replied, "Yes, Jessica and Alice were in another room at the time. Alice has just left to stop the past me, and you're the only one who can help me now."
+
+"Okay." Xiao Ai could hardly believe how readily Kate agreed. The two of them exchanged more details about what had happened, and Kate prepared to set off.
+
+After hanging up the phone, Xiao Ai, whose emotions were oscillating between excitement and despair, wandered back to the milk tea shop in a daze. It was already very dark, and the wind was howling, making the trees along the road sway and the trash swirl in the air. Xiao Ai was blinded by sand brought by the wind, unable to open her eyes or even stand steadily. She was only three meters away from the shop entrance, but it felt so far.
+
+Meanwhile, inside the bright and clean milk tea shop, Alice from three days ago was packing up to go home. The trees outside swayed violently as the sky darkened. She glanced outside, thinking that if she didn't leave now, she might not be able to get out tonight.
+
+At that moment, she noticed a small, familiar figure outside. Could it be Xiao Ai? Why would she be here? But the front door had already been locked by another colleague, and Alice was planning to leave through the back door. Should she open the door? She hesitated for a second, then turned to the counter to get the key.
+
+Just as Xiao Ai's eyes were stinging painfully from the sand, she felt someone suddenly lift her up, and she seemed to be flying. She heard a loud crash, something fell from above and hit the ground beside her, and the person holding her fell to the ground with her. Then she heard Alice's familiar voice nearby, "Oh my, come in quickly, are you hurt?"
+
+Alice was startled by the loud noise at the shop entrance and rushed to see what had happened. She saw a young man and a child on the ground, with a fallen signboard beside them. She opened the shop door and quickly helped them inside.
+
+Seeing Xiao Ai's face, Alice was very surprised, especially by her red and swollen eyes. She led her to the sink to wash her face and eyes. Xiao Ai's eyes felt a little better but she still couldn't open them fully.
+
+After settling Xiao Ai down, Alice looked at the young man dusting himself off and asked if he was injured. He said he was fine, just a little scratched. Alice took out some iodine and band-aids from the first aid kit and handed them to him. She then went back to the counter, and after a while, brought over two cups of milk tea, one for Xiao Ai and one for the stranger. The stranger smiled and thanked her. Two flashes of lightning and a clap of thunder, and it started pouring outside.
+
+Xiao Ai barely opened her eyes and said to the man, "Thank you for saving me!" The man replied, "It was nothing, don't worry about it." Alice asked them what had just happened. Xiao Ai said, "I was just about to enter the shop when a gust of wind blew sand into my eyes, and I couldn't see anything. Then something seemed to fall down, and if it weren't for this big brother, it would have hit me." Xiao Ai, still shaken, spoke in broken sentences. After the recent grievances and fright, and the unease of the past few days, seeing this Alice who had not experienced anything yet, Xiao Ai felt as if she had found home again. She threw her arms around Alice and started crying loudly.
+
+Alice took Xiao Ai to the employee break room to comfort her. Seeing that Xiao Ai couldn't stop crying, Alice was sure something big had happened. She lowered her voice and asked, "What happened? Why did you come to the shop to find me?"
+
