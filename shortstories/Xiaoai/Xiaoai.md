@@ -365,3 +365,72 @@ Watching Alice's figure gradually disappear, Little Ai couldn't hold back her te
 As she thought, Little Ai walked to the entrance of the bubble tea shop. Through the glass door, she saw Alice from three days ago, still working at the counter making bubble tea. This Alice was innocent. This Alice had selflessly helped her back then. Little Ai felt a deep sense of grievance and wanted to throw herself into this Alice's arms and cry her heart out, forgetting that she had just been abandoned by her.
 
 At that moment, a thought flashed through her mind: there should be another Kate in this city right now!
+
+
+**Chapter Thirteen**
+
+Xiao Ai turned around and walked toward the phone booth, dialing the number to Kate's apartment.
+
+"Hello," Kate's voice came through the phone. Xiao Ai, gathering her courage, said, "Kate, this is Xiao Ai. You don't know me yet, but three days from now, you told me you'd help me get rid of the two bad people living next to Jessica's rental house. Please, help me. I really can't live with them anymore." Xiao Ai's voice choked with emotion.
+
+Xiao Ai believed that Kate, having spent so much time with the time-traveling Jessica, would understand immediately. Kate did not disappoint. After a brief silence, she said, "That does sound like something I'd say. Did I tell you this in private?"
+
+Xiao Ai replied, "Yes, Jessica and Alice were in another room at the time. Alice has just left to stop the past me, and you're the only one who can help me now."
+
+"Okay." Xiao Ai could hardly believe how readily Kate agreed. The two of them exchanged more details about what had happened, and Kate prepared to set off.
+
+After hanging up the phone, Xiao Ai, whose emotions were oscillating between excitement and despair, wandered back to the milk tea shop in a daze. It was already very dark, and the wind was howling, making the trees along the road sway and the trash swirl in the air. Xiao Ai was blinded by sand brought by the wind, unable to open her eyes or even stand steadily. She was only three meters away from the shop entrance, but it felt so far.
+
+Meanwhile, inside the bright and clean milk tea shop, Alice from three days ago was packing up to go home. The trees outside swayed violently as the sky darkened. She glanced outside, thinking that if she didn't leave now, she might not be able to get out tonight.
+
+At that moment, she noticed a small, familiar figure outside. Could it be Xiao Ai? Why would she be here? But the front door had already been locked by another colleague, and Alice was planning to leave through the back door. Should she open the door? She hesitated for a second, then turned to the counter to get the key.
+
+Just as Xiao Ai's eyes were stinging painfully from the sand, she felt someone suddenly lift her up, and she seemed to be flying. She heard a loud crash, something fell from above and hit the ground beside her, and the person holding her fell to the ground with her. Then she heard Alice's familiar voice nearby, "Oh my, come in quickly, are you hurt?"
+
+Alice was startled by the loud noise at the shop entrance and rushed to see what had happened. She saw a young man and a child on the ground, with a fallen signboard beside them. She opened the shop door and quickly helped them inside.
+
+Seeing Xiao Ai's face, Alice was very surprised, especially by her red and swollen eyes. She led her to the sink to wash her face and eyes. Xiao Ai's eyes felt a little better but she still couldn't open them fully.
+
+After settling Xiao Ai down, Alice looked at the young man dusting himself off and asked if he was injured. He said he was fine, just a little scratched. Alice took out some iodine and band-aids from the first aid kit and handed them to him. She then went back to the counter, and after a while, brought over two cups of milk tea, one for Xiao Ai and one for the stranger. The stranger smiled and thanked her. Two flashes of lightning and a clap of thunder, and it started pouring outside.
+
+Xiao Ai barely opened her eyes and said to the man, "Thank you for saving me!" The man replied, "It was nothing, don't worry about it." Alice asked them what had just happened. Xiao Ai said, "I was just about to enter the shop when a gust of wind blew sand into my eyes, and I couldn't see anything. Then something seemed to fall down, and if it weren't for this big brother, it would have hit me." Xiao Ai, still shaken, spoke in broken sentences. After the recent grievances and fright, and the unease of the past few days, seeing this Alice who had not experienced anything yet, Xiao Ai felt as if she had found home again. She threw her arms around Alice and started crying loudly.
+
+Alice took Xiao Ai to the employee break room to comfort her. Seeing that Xiao Ai couldn't stop crying, Alice was sure something big had happened. She lowered her voice and asked, "What happened? Why did you come to the shop to find me?"
+
+**Chapter Fourteen**
+
+Kate received a phone call and, after glancing at Jessica napping on the sofa, walked to the farthest corner of the apartment from Jessica. She cast a spell to transport herself outside of Jessica’s old rented apartment. It was about to rain, so she snuck into the neighboring apartment where Xiao Ai and her family lived.
+
+Both of them were fast asleep, one on the sofa and the other in bed, while a small child was struggling to move someone from the sofa to a chair. The child was too small and found it very difficult. Kate, mischievously appearing beside her, said with a smile, "Hey, Xiao Ai, let me help you!"
+
+Xiao Ai was so startled that she fell to her knees. She saw a tall, unfamiliar woman unleash powerful magic, overturning all the furniture in the room. Xiao Ai cowered in the corner, watching in shock as the two unconscious people were lifted into the air, their souls extracted, their heads drooping lifelessly. Xiao Ai replayed the woman’s words in her mind. Who was she? How did she know her? And why did she say she was there to help? How could she possess such power?
+
+The chaos inside the house happened simultaneously with the storm outside, making it difficult for those outside to distinguish the source of the noise. However, Jessica and Kate, who were waiting on the rooftop for Alice, immediately sensed the powerful demonic energy spreading through the floor. Realizing something was wrong, Kate instantly transported herself and Jessica to the entrance of the penthouse. The door had already been blown open, and they were horrified to see the demonic Kate, who had consumed the two souls, trying to devour their bodies as well. Kate hadn’t consumed human energy in years, but after suddenly absorbing the souls of two people, her demonic power surged. The current Kate was seeing her demonic self for the first time, but there was no time to hesitate. She and Jessica had to work together to stop the berserk Kate from further devouring the human bodies; they could barely fight her now, and if she finished, they would stand no chance!
+
+Kate and Jessica severed the connection between the Kate from three days ago and the two bodies. Kate had to attack her past self, feeling conflicted. Jessica created a time bubble to trap the deranged Kate, preventing her from moving. The spell was extremely draining, essentially rewinding time every tenth of a second. Jessica’s face turned red as she shouted to Kate, “I can’t hold this for long! Get ready! Once I release the spell, you need to transport us all to a remote area outside the city, where no one will see us!” Kate quickly focused on gathering her magic; moving three people at once would be very exhausting.
+
+“3… 2… 1…” As Xiao Ai felt the air pressure change with their disappearance, a gust of wind blew in their direction, forming a small indoor tornado. Xiao Ai, trembling, stood up from the floor, completely confused by everything that had just happened. She looked at the mess around her, momentarily lost. She had sustained a few injuries from the flying furniture, but there was no time to rest. She had to take advantage of the storm to move these two people. Wait. They were already dead?! Xiao Ai was shocked to find that neither of them had a pulse. She clearly remembered only putting a lot of sleeping pills in the kettle, and then they fell asleep. The first woman who arrived looked identical to one of the two who came later. Were they twins? Xiao Ai looked at the two bodies with no apparent cause of death, wondering how she would explain all of this. She continued with her plan, using a wheeled chair to move them out. This time, their bodies were noticeably lighter. It still took a lot of effort for Xiao Ai to get her stepmother's body onto the chair and push it to the top of the makeshift ramp at the door. She lifted the chair and tossed the body over the railing. Without resting, she tried to move her father’s body, but the already damaged wheel from the fight broke off, making it difficult to move.
+
+The wind and rain intensified, and she had used up all her strength, sitting on the semi-open corridor, motionless like her father’s lifeless body. Xiao Ai was completely soaked, shivering as the rain poured down on her. She curled up, feeling a mix of happiness, resentment, frustration, and despair.
+
+At that moment, Alice arrived and saw the scene. She had missed Xiao Ai tossing the first body while climbing the stairs. The pouring rain, the open door, the chaotic corridor, the unconscious bodies, and the crying child. The scene overwhelmed Alice, as if she were seeing it for the first time, yet it also felt eerily familiar. She instinctively knelt beside Xiao Ai, embracing her. Alice’s fingers ran through Xiao Ai’s soaked hair, touching her warm scalp. The world had never felt so real and yet so unreal. She had forgotten why she came, couldn’t tell if she was trapped in a never-ending dream, and didn’t know when this was or when three days ago was.
+
+After a while, Xiao Ai’s body warmed a little from Alice’s embrace, regaining some strength. Without speaking, they silently worked together to throw the remaining body down. They watched as the body grew smaller, the sound of it hitting the ground barely audible.
+
+At that moment, Jessica and one of the Kates returned. Both were in a sorry state, their once-elegant dresses soaked and torn, their makeup running grotesquely in the rain. Xiao Ai clung to Alice in fear.
+
+Jessica angrily approached Xiao Ai and slapped her. "You’re the one who called Kate to help you kill people!" Xiao Ai was stunned, not understanding what she was talking about.
+
+Then Jessica slapped Alice, “What are you doing back here? And now you’re protecting her!” Alice remained silent.
+
+“Kate almost got herself killed!” Jessica glanced at the weakened Kate, not having the heart to slap her too. But after hesitating, she delivered a resounding slap to Kate as well. Kate, feeling guilty and a bit aggrieved, seemed like she wanted to say something but was scared into silence by Jessica’s stern look.
+
+After delivering three slaps, Jessica’s anger subsided a little. She told Alice, "Go inside, take a shower, sleep, and take a sleeping pill. Forget about the time travel." Alice, as if hypnotized, turned and walked back to her apartment. Jessica told Xiao Ai, “Go inside, find a corner to lie down, take a sleeping pill, and rest. Forget everything that happened after Kate arrived.”
+
+After settling the two, Jessica looked at Kate with frustration. "How much magic do you have left? Can you take me to the milk tea shop? We need to bring those two back to their original timeline." Kate weakly replied, "I used up the last of my magic bringing the half-dead past version of myself back to the apartment and then bringing us back from the outskirts.”
+
+Jessica was silent for a while before saying, “Then let’s go down and eat those two bodies. Human corpses don’t provide much magic, so you won’t go berserk.” 
+
+Kate held back for a moment, then burst out laughing. Jessica couldn’t help but laugh with her. They teased each other for a while and then walked downstairs.
+
+By then, the rain had stopped for a while, and a police officer, responding to a report, was on his way from the station.
