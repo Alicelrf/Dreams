@@ -69,7 +69,7 @@ Through all this commotion, the driver remained undisturbed. He leaned back in h
 By now, it was 8:30 PM. If Xiao A’s destination was next, they had about 30 minutes to go.
 
 
-**Chapter 2**  
+### Chapter 2
 
 Night had fallen, and the brightest stars were faintly visible in the clear, cloudless sky. Though the open sunroof let in considerable noise, no one brought up the idea of closing it anymore. Xiao A put on her headphones and resumed listening to her podcast. The girl wearing a mask leaned back into the corner and closed her eyes, resting. In the back seat, the man continued watching his gaming videos. Once again, the car returned to its usual quiet, detached atmosphere.  
 
@@ -146,3 +146,115 @@ Xiao A closed her eyes, still deep in thought, trying to figure out how the hack
 Meng Yu suddenly pointed at the dashboard. “Look at this map. In five minutes, we’ll reach a seaside town. If we keep going, we’ll drive into the ocean within ten minutes.”  
 
 It was already 9:23 p.m.
+
+
+**Chapter 3**  
+Time ticked by as Xiao A, Wang Xia, and the girl in the backseat frantically refreshed their phones, desperate to find a signal. They had entered the coastal town’s perimeter, where reception should have been restored. Yet, this proximity to the lake meant their fate loomed ever closer. Only Meng Yu seemed composed, his voice cutting through the tension as he addressed Wang Xia in the backseat.  
+
+“Can you reach my bag in the trunk?”  
+
+Wang Xia protested, “We should be calling the police right now!”  
+
+Meng Yu countered coldly, “What’s the point? The cops won’t arrive in a minute, but they certainly can fish us out of the lake after we’ve drowned.”  
+
+Wang Xia hesitated, then asked, “So what’s your plan?”  
+
+“Smash the windows. The moment we hit the water, we swim out. There’s a tool in my bag. It’s a black one, behind your seat.”  
+
+Xiao A shivered at Meng Yu’s preparedness. What kind of person carried tools designed to break car windows?  
+
+Wang Xia scrambled to unbuckle his seatbelt and knelt on his seat, stretching toward the trunk. “I see it, but I can’t reach it!” he exclaimed.  
+
+“Then slide to the middle seat and fold your seatback down,” Meng Yu instructed with chilling calm.  
+
+“Wait a minute!” Xiao A said. “It doesn’t look like we’re heading into the sea.. Look ahead!”  
+
+All eyes turned forward. The convoy of cars had slowed and was now queuing to board a ferry.  
+
+The girl in the backseat stopped fiddling with her phone. Her trembling hands froze as an SOS signal appeared on her screen. She hastily dialed the police. The faint signal made the wait for the call to connect agonizing.  
+
+“Hello, do you need assistance?”  The voice was quite chunky. 
+
+“Our car has been diverted! We’re being driven onto a ferry!”  
+
+“Are you in immediate danger?”  
+
+“...Not yet. But this whole situation is bizarre! Please help us! There are dozens of cars being herded to this remote location!”  
+
+“Ma’am, if this is not an immediate emergency, such traffic coordination issues should be reported to the transportation bureau. However, I’ll forward your case. May I have your vehicle number?”  
+
+The girl glanced at Xiao A, who hurriedly handed her phone over so she could recite the license plate.  
+
+“Hold on while I contact the transportation bureau.” Then, silence.  
+
+At that moment, their car rolled into the ferry’s dark interior. Hundreds of vehicles slowly parked in the ship’s belly. One by one, engines turned off, and headlights extinguished. The ferry’s interior blocked all phone signals, leaving only the faint glow of screens to pierce the darkness.  
+
+Wang Xia was about to resume his effort to retrieve the bag when Xiao A interrupted, “I think I saw people with flashlights up ahead!”  
+
+Meng Yu snapped, “They can be of real danger. Wang Xia, stay put. Everyone, keep quiet and turn off your screens.”  
+
+Xiao A’s heart pounded. She glanced at the driver of the car parked a meter away. The person sat motionless, seemingly asleep. She nudged Meng Yu with her gaze, silently urging him to notice. He nodded faintly, indicating he already had.  
+
+The passengers in the other vehicles appeared to be unconscious—or pretending to be.  
+
+Meng Yu squinted, assessing the situation. “There are about six or seven of them. Everyone, play dead.”  
+
+Xiao A tilted her head, closed her eyes, and fell silent. The girl in the back leaned her head against the door, eyes shut. Wang Xia squeezed his eyes closed, his face betraying his struggle to conceal fear. Meng Yu pulled his cap lower over his face.  
+
+Through a crack in her hair, Xiao A peeked at the approaching figures. She whispered, barely audible, “Most of them are gone. Two people with flashlights are walking from that end in this direction.”  
+
+**9:30 PM.**  
+All they could do was wait—and pray.  
+
+————————————————
+
+
+### Chapter 4
+**An Hour Earlier**  
+
+On the second deck of the ferry, a young man with curly hair sipped coffee as the sea breeze tousled his locks. A vibration from his satellite phone broke his reverie.  
+
+L glanced at the message on the screen: **Program Initiated.**  
+His eyes widened. The operation had started a full four hours ahead of schedule. Panic struck him as he checked his wristwatch and then the program’s settings. Could he have made a mistake? Did he set the wrong time zone? Cold sweat trickled down his back.  
+
+Cursing his carelessness, L quickly radioed the ship’s captain, S. “Captain, the vehicles might arrive four hours early!”  
+
+“Damn it!” S was in the first-deck lounge, lazily playing cards with his crew. They had jammed the town’s communication signals for this heist, leaving satellite phones as their only means of contact.  
+
+“Maybe the transportation bureau got suspicious, and the mole changed the plan. You’d better get ready. I’ve got my hands full here. Inform the two operatives onboard; they might not know yet.”  
+
+“Fine. The sooner we finish, the sooner we leave. Let’s get to work, boys,” S called out. Bored to death, the five crew members eagerly abandoned their game and sprang into action, preparing for the ferry’s docking and the stolen cars’ arrival.  
+
+Meanwhile, L tried contacting the mole via a secure channel, anxiously awaiting a response. To distract himself, he checked his laptop’s logs and vehicle data records. Was it really his error, or was someone sabotaging the operation?  
+
+L’s stomach churned when he discovered that the mole had revoked their access to the transportation bureau’s central system. Panic set in. Had the mole been compromised? Or had they deliberately gone rogue? And yet, the program had executed flawlessly. Why hadn’t he been warned?  
+
+Desperate for answers, L combed through temporary backups of the program logs.  
+
+Before diving deeper into his work, a nagging thought gnawed at him. Something critical was slipping through his grasp. Stepping onto the empty second-deck balcony for clarity, he scanned the surroundings. Where were the two operatives sent by the other organization?  
+
+Feeling the situation spiraling out of control, L returned to his workstation. He decided to open the mysterious large box they had brought onboard.  
+
+Just as he reached for the box, footsteps approached his door. He swallowed hard, turned back to his desk, and pretended to focus on the logs.  
+
+Three sharp knocks broke the silence.  
+
+“Come in. Door’s open,” L said gruffly, masking his unease.  
+
+The door creaked open, revealing the two operatives, X and Z, from the other organization.  
+
+“Hey, L,” X, a tall and wiry man, greeted him. “S said the program launched early. What’s going on?”  
+
+L’s instincts screamed that X already knew the answer.  
+
+“I don’t know,” L replied honestly. “Maybe the mole decided to act early. Or it could be an error.”  
+
+“Can the vehicles still be controlled as planned once they arrive?” X asked, his tone even but probing.  
+
+L’s mind raced. This was a pivotal question. Did they want the operation to succeed, or were they planning to betray him? His response could determine his fate.  
+
+“I’m not sure,” L admitted cautiously. “We’ll have to test it when the cars arrive. Right now, I’m still figuring out what went wrong.”  
+
+X nodded, his expression unreadable. “Got it. Sorry to bother you.” With that, he and Z left without further comment.  
+
+L’s unease deepened. Something was brewing, and he was right in the eye of the storm.
