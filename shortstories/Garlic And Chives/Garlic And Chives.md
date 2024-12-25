@@ -258,3 +258,142 @@ L’s mind raced. This was a pivotal question. Did they want the operation to su
 X nodded, his expression unreadable. “Got it. Sorry to bother you.” With that, he and Z left without further comment.  
 
 L’s unease deepened. Something was brewing, and he was right in the eye of the storm.
+
+
+### Chapter 5  
+**The Ship’s Cargo Hold**  
+
+Time passed slowly. Small beams of flashlight occasionally swept across their faces, visible even through closed eyelids. Little A could feel the light touch her face shortly. Finally, the sound of footsteps faded. Moments later, the ship’s engines roared to life, vibrating the entire vessel. Little A glanced at her watch. It was only 9:40 PM. Barely ten minutes had passed.  
+
+Wang Xia cautiously opened his eyes and whispered, "I think they’re gone." He scanned the surroundings but was met with nothing but darkness.  
+
+Little A tried the car door, but it was still locked.  
+
+Meng Yu immediately turned to Wang Xia. “Brother, keep going!”  
+
+The girl in the back seat huddled tightly into a corner, trying to distance herself from Wang Xia, who was now kneeling between the front seats to retrieve something from the trunk. She looked at Little A and whispered, “Even if we get out of the car, what then? The ship’s already left the dock. We can’t go back to shore, and there are bad guys on board.”  
+
+Little A replied, “There may be bad guys on the ship, but there must also be a satellite phone. Whatever their reason for kidnapping us, they’ll need to communicate with the outside world.”  
+
+Meng Yu interrupted, “What if it’s not a kidnapping? The people in the other cars—we don’t even know if they’re alive.”  
+
+Little A reasoned, “If they just wanted to kill us or stage a terrorist attack, why go to all this trouble? They clearly have the power to control so many vehicles. They could do anything with that.”  
+
+Wang Xia chimed in, “Have you heard about the Sewol Ferry disaster years ago? There were rumors that the sinking was some sort of sacrificial offering.”  
+
+At that moment, he pulled Meng Yu’s bag from the trunk. It was heavy. After resetting the seat, he handed it to Meng Yu.  
+
+Little A peeked inside and saw flashlights and an array of metal tools. Meng Yu pulled out a chisel and a hammer, then donned a baseball cap and gloves. He looked at Little A and instructed, “Be careful of the glass shards. Use your clothes to cover yourself.”  
+
+A few forceful hits later, the driver’s side window was riddled with cracks. With a final push, Meng Yu broke the glass into a single, clean sheet, then carefully cleared the remaining shards around the frame. He climbed out first, followed by Little A, whom he helped from the outside. Wang Xia glanced at the girl in the back seat and gestured for her to go next, but she shook her head. Wang Xia sighed and climbed out.  
+
+Little A turned back and asked the girl, “Aren’t you coming out?”  
+
+The girl responded, “What’s the point? I might be safer staying here.”  
+
+Little A pressed, “We could find a lifeboat and row back. Or we could try to find a signal and call for help. People in the city must have noticed we’re missing by now.”  
+
+The girl hesitated. “What if we run into those bad guys? Isn’t it riskier out there? Wouldn’t it be better to wait here for rescue?”  
+
+Little A shook her head. “We know too little about the situation. We can’t just sit here and do nothing.” She then turned to Wang Xia and Meng Yu, who were inspecting a nearby car. “Try smashing a few other windows. Maybe the people inside are just unconscious.”  
+
+Wang Xia and Meng Yu nodded and moved to the car behind theirs, where the spacing was slightly wider.  
+
+Meanwhile, Little A continued coaxing the girl. “Sister, it’s not safe here. And Meng Yu… I don’t think we can trust him.”  
+
+The girl immediately nodded in agreement. “I don’t trust Wang Xia either.”  
+
+Catching her drift, Little A added, “Why don’t you come out, and we’ll stick together?”  
+
+Finally, with Little A’s help, the girl climbed out. “I’m CC,” she said softly.  
+
+Little A noticed how frail CC seemed—so thin, light, and cold to the touch.  
+
+“CC? That name sounds familiar.”  
+
+“You don’t know me?” CC’s eyes brightened for a moment. “That’s great.”  
+
+Just then, Wang Xia and Meng Yu returned, reporting grimly, “The people inside are still breathing, but we can’t wake them. They seem to be deeply unconscious.”  
+
+CC’s eyes widened in realization. “It’s an inhaled anesthetic or tranquilizer! It must be! We didn’t pass out because we opened the sunroof shortly after the car was sealed.”  
+
+Little A nodded, a light bulb going off in her mind. “That makes sense. We have Wang Xia’s midday dumpling feast to thank for that.”  
+
+Meng Yu frowned. “Dumplings? What are you talking about?”  
+
+Wang Xia awkwardly explained the situation, prompting a chuckle from Little A despite the tension.  
+
+CC continued, “If we break the windows on other cars, ventilating them might help the others wake up over time. If not, they could be in real danger.”  
+
+Meng Yu pointed out, “But if we keep smashing windows here, we’ll eventually draw the bad guys’ attention.”  
+
+Wang Xia suggested, “Then we need to get out of this level, find a signal, or locate a satellite phone or lifeboat.”  
+
+Little A proposed, “We should split up. Two of us stay here—one to keep watch and the other to smash windows—while the other two go search for help. I’ll go with CC to look for a signal. You two can stay here.”  
+
+Meng Yu hesitated. “It’s too dangerous for you two to go alone. If you run into the kidnappers, you won’t be able to defend yourselves. I’ll go instead.”  
+
+CC immediately objected, “I won’t go with Wang Xia.”  
+
+Meng Yu asked, “Why not?”  
+
+“No reason.”  
+
+Frustrated, Meng Yu said, “Now’s not the time to act petty, miss. We need to move fast.”  
+
+Little A looked at CC sympathetically, sensing her reluctance.  
+
+Wang Xia’s expression darkened with a mix of guilt and anger. Finally, he muttered, “Fine. I’m a scumbag. I admit it. I’m sorry.”  
+
+CC’s face hardened as she turned away, struggling to maintain her composure.  
+
+Meng Yu’s eyes narrowed. “What did you do to her?”  
+
+Wang Xia stammered, unsure whether to explain.  
+
+CC finally spoke. “Tell him.”  
+
+Wang Xia sighed. “CC is a well-known underground idol. A voyeuristic video of her was leaked in a private Telegram group.”  
+
+“That wasn’t even me!” CC shouted angrily.  
+
+“We know,” Little A said firmly. “The video’s already been analyzed end to end on tech forums. It’s obviously deepfake.”  
+
+Meng Yu exhaled in relief. “Then what’s the big deal? The video isn’t real. He didn’t make it or uploaded it. He’s apologized. Can’t we move on?”  
+
+Little A shot back, “The issue is people like him are the reason this kind of stuff keeps happening. It’s not just videos—it’s live-streamed crimes, exploitation, and worse. Men like him never suffer the consequences while women who did nothing wrong have to live through hell.”  
+
+Meng Yu fell silent, acknowledging her point.  
+
+Wang Xia turned away, visibly ashamed. He muttered, “I’ll keep smashing the windows. Don’t worry about me. I can run faster without her. I can’t protect her anyway.”  
+
+After some coaxing, Little A and CC hugged tightly. “It’s all passed. We need to focus on now and we will get through this,” Little A encouraged CC to put herself together.
+
+As they left, Wang Xia lit a cigarette, muttering to himself “Fuck, when will us men stop being slaves to their sexual desires.” as he continued smashing windows.  
+
+“Hey, could you put that out?” a weak voice suddenly croaked from the car window Wang Xia just smashed .
+### Chapter 6  
+
+**9:25 PM**  
+L stood outside of his office located on the second-deck, gazing out the window at hundreds of cars smoothly driving onto the ship and parking in an orderly manner in the lower cargo hold. Once parked, two crew members began their inspection to ensure the cargo deck was properly sealed. Thankfully, this critical step went off without a hitch. L felt a slight sense of pride—at least the first half of their plan had gone smoothly. Yet, his unease lingered.  
+
+It was this very unease that had prompted L, an hour earlier, to quietly move the contents from a large box in his room to a corner on the second deck after the tall, thin man named X had left. He covered the contents he took out of the box with a tarp already there on the deck, making it look inconspicuous. The wind on the deck was strong—judging from the fluttering flags, the wind speed was at least 35 km/h. After completing his preparations, L returned to his room and continued his attempts to connect to the traffic bureau’s systems. By analyzing several auxiliary databases and program logs, he deduced that at least three safety monitoring modules were malfunctioning. However, the modules for tracking vehicle routes and driving data were operational, which explained why no alarms had been triggered by the safety surveillance system. While he couldn’t get a full picture of the system’s status, things hadn’t yet spiraled out of control.  
+
+As L stood on the deck lost in thought, a young man from the car theft group named Ben approached him. Ben, who was apparently related to S, had dropped out of high school recently. He asked L if he wanted to head down and check things out. L shook his head. “No need. You guys can handle it,” he replied. With that, Ben and the other members of the car theft group, along with two representatives of the anti-government faction, headed down to the cargo hold to inspect.  
+
+Car theft—what an outdated crime. Eight years ago, it was rampant in developed countries. Stolen vehicles would be smuggled via shipping routes to the Middle East and Africa. But in recent years, after governments requisitioned and modified private vehicles for centralized dispatch, cars could no longer be driven by private individuals without authorization. As a result, car theft syndicates had largely disbanded.  
+
+L chuckled at the irony of finding himself in league with such people. But as the saying goes, “The enemy of my enemy is my friend.” To undermine public trust in the government’s vehicle control policies, was it really such a big deal to restore “freedom” to a few hundred cars? L reassured himself with this thought.  
+
+Since the outbreak of COVID-19 over a decade ago, global economic downturns and widening wealth gaps had fueled numerous random vehicle-ramming attacks around the world. Busy intersections, school gates, and Christmas markets were frequent targets. From 2023 to 2026 alone, these incidents resulted in thousands of casualties in China and hundreds of deaths in Europe. Fear gripped the public. Governments tried everything—roadblocks, armed patrols, and other measures—but with so many vehicles and roads, they simply couldn’t cover every angle.  
+
+Meanwhile, autonomous driving technology had reached maturity. Top tech companies seized the moment to lobby lawmakers and advocate for the abolition of private car ownership. Initially, there was significant pushback, especially from insurance companies, driver unions, and car enthusiasts. But the public’s growing frustration with traffic congestion, long commutes, high insurance costs, and dangerous roads eventually drowned out opposition, particularly in a digital space dominated by tech monopolies. Governments, in turn, offered compromises to car enthusiasts, such as dedicating more racetracks for recreational driving, turning driving into an activity akin to horseback riding—restricted to controlled environments.  
+
+As pilot programs succeeded in small cities, residents reported significantly lower travel costs and increased safety, paving the way for broader adoption of the policy across developed nations. While some countries implemented these policies for cost and efficiency reasons, authoritarian regimes used them primarily as tools for population control and suppression. In democratic nations, strict background and psychological checks allowed a select few to retain driving privileges, but these instances grew increasingly rare.  In many countries, the expense and inconvenience of owning a car were purposely increased to discourage private vehicles while allowance was given to public owned carpool services. 
+
+L and the hacker collective he belonged to had long opposed government control over vehicles. His reasoning? It was simple: L just loved driving. He loved the freedom it offered. He couldn’t bear the idea of sitting passively in a car, staring at the scenery while a predetermined route dictated his journey.  
+
+L wasn’t particularly political. If he had to be labeled, he’d likely fall under “chaotic neutral” anarchism. Over the years, his group had targeted authoritarian regimes’ firewalls, hacked Swiss bank databases, disrupted Wall Street’s trading systems, and even waged cyber wars against terrorist organizations. Sometimes, they clashed with the Pentagon and intelligence agencies; other times, they were co-opted or manipulated by them. Occasionally, their actions stirred enough trouble to land them on international wanted lists.  
+
+Most of L’s work didn’t require him to be physically present; it was typically done online. But resetting the systems of so many vehicles in the middle of international waters required him to set up a 5G local network. Now that the cars had arrived, it was time to get to work. L picked up his coffee, ready to return to his task.
+
