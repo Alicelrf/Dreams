@@ -453,3 +453,145 @@ CC wanted to protest but couldn’t find the words. Instead, she hugged Xiao A t
 “I’ll walk you out,” CC said. “I don’t want you getting ambushed like this guy.” Xiao A nodded.
 
 Heart pounding, Xiao A slipped out of CC’s sight, not knowing what fate awaited her.
+
+
+### Chapter 8
+
+In the restroom, Meng Yu continued interrogating the crew member, who introduced himself as Ben.
+
+“How many of you are on this ship? Are they all part of your car theft ring?” Meng Yu asked.
+
+“There are eight of us in the crew. Our boss, S, is in charge. There’s also a hacker and two people who seem to be with some kind of anti-government group,” Ben replied nervously.
+
+“What does this anti-government group have to do with your operation?”
+
+“I’m not sure. Maybe they’re just working together to split the profits.”
+
+“That doesn’t add up,” CC interrupted angrily. “Someone had to modify those vehicles, bribing inspectors to install timed sedatives. This isn’t a coincidence. That’s why all the people below deck are unconscious.”
+
+Ben shook his head emphatically. “I swear I’ve never heard about that. We just wanted the cars. Bringing people along only complicates things.”
+
+Meng Yu mulled over the information for a moment. “Then it’s clear. The anti-government group must be planning a mass kidnapping. You only care about the cars, so they’re using your ship and the hacker’s expertise. No—wait. That hacker, L, might be working for them too.”
+
+Ben hesitated. “I don’t think so. Earlier today, the hacker was the one who warned us the cars were arriving ahead of schedule. He looked genuinely panicked, not like he was acting.”
+
+“So the most dangerous people on this ship are those two,” Meng Yu concluded. “But even your car theft gang wouldn’t hesitate to kill us and toss us overboard if they see us as a threat, right?”
+
+Ben nodded reluctantly. CC, growing increasingly anxious, glanced toward the door. She couldn’t stop thinking about Xiao A. *Come back already. It’s been two minutes, but it feels like forever.*
+
+“What was your original plan for the cars?” Meng Yu asked.
+
+“We were supposed to dock at a nearby island, unload the cars, and over the next two days, move them in batches to ships waiting in international waters. Once the cars were on those ships, our job would be done.”
+
+“Eight of you unloading that many vehicles?” Meng Yu probed further.
+
+“There are two other groups waiting for us on the island. But most of the unloading is automated. The hacker remotely drives the cars off, just like how he got them on board. If you look closely, you’ll see the cars are parked by model and age. That way, they’ll be arranged the same way on the island.”
+
+CC sneered. “Impressive logistics for a gang of criminals.”
+
+Ben gave a sheepish smile. 
+
+“Where are your people now?” Meng Yu’s tone remained as sharp as ever. There was no room for levity or relaxation.
+
+“Three of them are usually in the control room, steering the ship. The rest should be in the crew quarters on the first floor, drinking and playing cards.”
+
+“And those two men from the anti-government group? What are their names, and where do they usually stay?”
+
+“There’s a tall, skinny guy named X—quiet and intense. The other is stockier; his name is Z. I’m pretty sure they’re armed, but honestly, everyone in this line of work carries weapons. Sometimes they drink with us, but most of the time, they keep to themselves. The ship’s big, and they don’t do much work, so I don’t see them often.”
+
+“Where are the satellite phones on the ship?”
+
+“There’s one in the captain’s quarters, one with the hacker, and probably one with those two guys.”
+
+“You don’t have a gun on you?” Meng Yu asked, scrutinizing him.
+
+Ben shook his head. “No, I’m just here because my uncle brought me along to do grunt work. I don’t get a weapon. Look, if we all end up getting caught by the cops, can you put in a good word for me? I’ll never do this again, I swear.”
+
+Meng Yu nodded slightly. “Fine. But for now, I’ll have to tie you up and gag you. Understand?”
+
+Ben grimaced but didn’t resist. “Yeah, I get it.”
+
+Using Ben’s own clothes, Meng Yu twisted and tied them into makeshift ropes, binding Ben’s hands and feet securely. He stuffed the man’s T-shirt into his mouth to gag him.
+
+CC turned to Meng Yu, her voice hesitant. “What now? Should we look for a satellite phone or head for the lifeboats?”
+
+Meng Yu replied firmly, “We wait for Xiao A. If the hacker is alone in that room, we’ll all go together to subdue him and use the satellite phone to call for help. If there’s more than one person, we head straight for the lifeboats.”
+
+Suddenly, CC gasped. “We have to tell Wang Xia!”
+
+Meng Yu smacked his forehead. “Right. I almost forgot about him. You stay here and watch Ben. I’ll go find him.”
+
+CC hesitated but nodded reluctantly. “Okay. At least I can help pass on messages. That’s better than being completely useless.” 
+
+As Meng Yu prepared to leave, CC felt the weight of the situation pressing down on her. Waiting in the restroom with a gagged hostage felt like an eternity. Meanwhile, Meng Yu slipped into the shadows, determined to find Wang Xia before it was too late.
+### Chapter 9  
+
+10:10 PM. Xiao A cautiously approached the lit room on the second floor. It had a large window, likely providing a clear view of the surroundings. She quietly peeked inside—and froze.  
+
+A terrifyingly familiar profile. The same Technica headphones perched on his head. His eyes were fixed intently on the screen. Even with just half his face visible, Xiao A immediately pictured his whole posture—the slight hunch of his back, one leg crossed casually over the other, and those long, slender fingers at work.  
+
+Her caution evaporated in an instant. She stormed to the door and pushed. It was locked. Gritting her teeth to suppress her anger, she marched up to the window and stood there, unmoving. When she saw his full face, the small differences didn’t matter. It was him.  
+
+Inside, L didn’t notice her at first. But then, out of the corner of his eye, he caught a figure standing by the window. Startled, he looked up—and froze.  
+
+Why was A here? For two seconds, he just stared at her, dumbfounded. Xiao A raised her hand and pointed to the door.  
+
+Still unsure if he was dreaming, L hesitated but eventually walked over to unlock the door.  
+
+The moment Xiao A stepped inside, she punched him squarely in the face.  
+
+The pain jolted L back to reality. Clutching his cheek, he quickly grabbed her wrist to prevent another hit. Keeping his voice low, he said, “Alright, alright! I get it—I messed up. Just keep it down, or someone will hear us! How did you even find me here?”  
+
+“Impressive,” Xiao A said icily. “Big-shot hacker now, huh? I thought you were just some guy who wrote buggy code. And now you’re stealing cars and kidnapping people?”  
+
+“What? Kidnapping? What are you talking about?” L’s denial was automatic, but the nagging doubt that had been gnawing at him all day suddenly crystallized.  
+
+“How do you think I ended up on this ship? Flew here?”  
+
+The truth hit L like a freight train. *Shit. There were people in those cars.* His legs gave out, and he collapsed into his chair.  
+
+He finally understood what had gone wrong. The module their mole had skipped wasn’t just for security and hardware checks—it also skipped the final completion check. If the operation had gone as planned at midnight, with those checks included, no passengers would have been left in the cars. He had been careless, never imagining the thieves would bring passengers along. But why?  
+
+Clutching his aching face, his mind raced through possibilities.  
+
+Xiao A’s voice snapped him back. “Start the cars. Open every window. Everyone inside is unconscious.”  
+
+“What? Unconscious?” L’s heart sank as he realized what X and Z’s group was planning. This wasn’t just theft. This was something much bigger.  
+
+“Hurry up! Stop wasting time.”  
+
+“I’m not done yet,” L muttered. “The 6G local network setup is almost ready, but the integration tests with the cars still need time. Just opening the windows might work. Give me half an hour.”  
+
+“Then give me the satellite phone. I’ll call the police myself.” Xiao A extended her hand.  
+
+L hesitated but eventually walked to the desk to retrieve the satellite phone.  
+
+Before either of them could act further, two men appeared in the doorway, guns drawn.  
+
+“Don’t move. Hand over the phone.”  
+
+L turned to see X and Z, their weapons trained on him and Xiao A. L’s heart sank as he handed the phone to the tall, thin man, X, who slid it into his coat pocket.  
+
+Sweat beaded on L’s forehead. This was the worst-case scenario. The group wasn’t just anti-government—it was a full-blown terrorist organization. Once they docked, reinforcements from both the terrorist and car theft groups would be waiting for them on the island. The thieves might not have planned to kidnap passengers, but they’d clearly been roped into the terrorists’ scheme.  
+
+For now, L thought he might be safe. But Xiao A was in real danger. He glanced at her, trying to gauge how much she understood about their situation. Her expression was unreadable—no fear, no anger. L knew that look all too well. When Xiao A was truly furious, she didn’t show it.  
+
+X, noticing the tension, smirked coldly. “And who’s this young lady? When did she get on board?”  
+
+Xiao A didn’t respond. She wouldn’t waste words on someone playing games.  
+
+X turned his attention to L. “You two seem to know each other. Sorry to interrupt your reunion. What’s your relationship? Care to share?”  
+
+X’s tone was casual, but his gaze was sharp. The way his gun stayed pointed at Xiao A made it clear he’d already figured out she was important to L.  
+
+L spoke carefully. “We went to college together. She was the top student in our class.”  
+
+X’s eyes gleamed with understanding. Of course, these two weren’t just classmates. And L’s subtle message wasn’t lost on him either—this girl had value. His smile widened, colder and crueler.  
+
+“You’ve got work to do, so I’ll take your old classmate for a tour of the ship. Didn’t you say you needed half an hour? Fine. You’ve got thirty minutes. Open the car doors by then.”  
+
+With that, X rested a hand on Xiao A’s shoulder, guiding her out at gunpoint.  
+
+L was left alone in the room, staring at his incomplete work, the unraveling plan, and the danger now looming over his old friend.  
+
+He gripped his hair tightly, muttering to himself. “Stay calm. Stay calm. There’s always a way. She’ll be fine. She has to be.”
