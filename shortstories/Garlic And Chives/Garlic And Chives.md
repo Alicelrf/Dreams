@@ -397,3 +397,59 @@ L wasn’t particularly political. If he had to be labeled, he’d likely fall u
 
 Most of L’s work didn’t require him to be physically present; it was typically done online. But resetting the systems of so many vehicles in the middle of international waters required him to set up a 5G local network. Now that the cars had arrived, it was time to get to work. L picked up his coffee, ready to return to his task.
 
+
+### Chapter 7
+
+Having left the ship’s lower deck, Meng Yu, Xiao A, and CC huddled together to plan their next move. 
+
+The first priority was to alert the authorities. To do this, they needed to get their phones outdoors to search for a signal. If that failed, they would focus on self-rescue—finding lifeboats near the stern or the sides of the ship and rowing back if necessary. Their last resort was to risk entering the bridge to use the satellite phone, which all large ships are equipped with. Above all, they needed to avoid being spotted, and if caught, surrender immediately to prevent direct confrontation.
+
+The three crept up to the deck near the bow, carefully observing their surroundings. The only sounds were the roaring wind and the ship's engine. A light shone from a room above, but the ocean around them was an endless expanse of darkness. Xiao A and CC quickly took out their phones, searching for a signal, but there was none. It was already 10 p.m., and though it was summer, the wind from the moving ship chilled them to the bone. The two huddled together for warmth.
+
+Meanwhile, Meng Yu remained vigilant, gauging their distance from the shore. The lighthouse seemed about 20 kilometers away—too far to swim. He tried recalling the islands and routes in this area. There might be one or two desolate islands nearby, but his familiarity with these waters was limited.
+
+"No signal. I can't even send an SOS," Xiao A said, frustrated. "Let’s look for the lifeboats."
+
+Meng Yu nodded. "Alright, we'll find the lifeboats, then get Wang Xia and leave."
+
+Xiao A hesitated. "Meng Yu, do you know where the lifeboats are and what they look like?" Her initial distrust of Meng Yu was fading; she was even beginning to see him as an ally.
+
+Meng Yu replied, "There are usually two types. One hangs off the stern—it’s a rescue boat. You just untie the ropes, and it drops straight into the sea. The other is a white capsule-like raft near the sides of the ship. It inflates automatically when released, and we can climb in using the ladder."
+
+CC, visibly more at ease, asked, "Uncle, were you a sailor before?"
+
+Meng Yu coughed. "Yeah, I was a sailor for ten years." But inside, he winced. *Uncle? Do I look that old?* The young woman’s words made him feel a sudden pang of age.
+
+As they whispered, they moved quietly along the inner side of the deck. Reaching a cross corridor midship, they froze. From behind a wall, they heard the sound of a toilet flushing. Meng Yu gestured for Xiao A and CC to stop and hide under a nearby bench. He listened carefully as water ran from the sink. Someone was about to emerge. Meng Yu quickly calculated: one person was manageable; two could be risky. If there were more, direct confrontation would be unwise. He gripped his makeshift weapon—a long spike—and prepared to ambush.
+
+The restroom door opened, casting a shadow on the floor and the opposite wall. *Good, just one person,* Meng Yu thought, his confidence growing. Within two seconds, he seized the unsuspecting crew member, locking his throat and pinning him to the ground. The spike rested against the man’s side, a silent warning.
+
+The girls heard the sudden end of the whistling tune the man had been humming, followed by faint scuffling sounds. Then, Meng Yu’s soft signal for safety. They crept over and helped drag the subdued crew member into the women’s restroom. Once inside, they turned on the light. The man was young, with a face that didn’t look particularly menacing. This made Meng Yu feel a twinge of guilt, but the dire situation and the dozens of people trapped below hardened his resolve.
+
+“Don’t call for help. Cooperate, and you won’t get hurt. Understand?” Meng Yu said sternly. The crew member nodded fearfully. 
+
+CC and Xiao A were visibly shaken. CC turned away, unable to face the scene, while Xiao A busied herself stuffing tissues into the door’s gaps to block any light.
+
+“Who are you people? Why are you holding all these cars and passengers hostage?” Meng Yu demanded.
+
+The man, terrified, shook his head but didn’t speak.
+
+“Answer me! Quietly,” Meng Yu pressed.
+
+“We’re just car thieves!” the man stammered. “The cars weren’t supposed to have anyone in them. Did you stow away with the cars?”
+
+“Don’t lie. Many of the cars had people inside, all unconscious. You clearly tampered with them.”
+
+“I don’t know anything about that! There’s a hacker onboard, someone called L. He’s the one who arranged for these cars. We’re just hired to transport and sell them. I swear I didn’t know there were people in them. L is in the lit room on the second floor at the bow. I can take you there.”
+
+“And how do I know you’re not leading us into a trap?”
+
+“Look, I’m just a grunt working under my uncle, doing manual labor. We’re talking about stealing cars—big deal, maybe a couple of years in prison. But kidnapping and trafficking people? That’s 15 years or more. I’d never get involved in something like that. Let the girls sneak over and check the room. If it’s just L in there, you’ll know I’m not lying.”
+
+Meng Yu glanced at Xiao A and CC, uncertain whether to trust them with such a risky task. CC hesitated too, torn between fear and the desire to stay with Meng Yu, whose competence she now relied on. Finally, Xiao A said, “I’ll go alone. Two people are easier to spot. I’ll just take a quick look and be back in three minutes.”
+
+CC wanted to protest but couldn’t find the words. Instead, she hugged Xiao A tightly, ashamed of her own fear. Xiao A patted her back, reassuring her. “I’ll be fine,” she said softly.
+
+“I’ll walk you out,” CC said. “I don’t want you getting ambushed like this guy.” Xiao A nodded.
+
+Heart pounding, Xiao A slipped out of CC’s sight, not knowing what fate awaited her.
