@@ -12,8 +12,6 @@
 
 On the second floor, a curly-haired young man in his twenties leaned against the railing, smiling mischievously.  
 
----
-
 # Chapter 1  
 
 8:00 PM, dusk. A black SUV arrived punctually.  
