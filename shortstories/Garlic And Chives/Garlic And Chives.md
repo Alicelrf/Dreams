@@ -1,4 +1,6 @@
-### Chapter 0  
+# Garlic And Chives
+
+## Chapter 0  
 
 2:00 PM, at the docks. Two sailors were unloading cargo from a truck.  
 
@@ -12,9 +14,7 @@
 
 On the second floor, a curly-haired young man in his twenties leaned against the railing, smiling mischievously.  
 
----
-
-### Chapter 1  
+## Chapter 1  
 
 8:00 PM, dusk. A black SUV arrived punctually.  
 
@@ -69,7 +69,7 @@ Through all this commotion, the driver remained undisturbed. He leaned back in h
 By now, it was 8:30 PM. If Xiao A’s destination was next, they had about 30 minutes to go.
 
 
-### Chapter 2
+## Chapter 2
 
 Night had fallen, and the brightest stars were faintly visible in the clear, cloudless sky. Though the open sunroof let in considerable noise, no one brought up the idea of closing it anymore. Xiao A put on her headphones and resumed listening to her podcast. The girl wearing a mask leaned back into the corner and closed her eyes, resting. In the back seat, the man continued watching his gaming videos. Once again, the car returned to its usual quiet, detached atmosphere.  
 
@@ -148,7 +148,7 @@ Meng Yu suddenly pointed at the dashboard. “Look at this map. In five minutes,
 It was already 9:23 p.m.
 
 
-**Chapter 3**  
+## Chapter 3
 Time ticked by as Xiao A, Wang Xia, and the girl in the backseat frantically refreshed their phones, desperate to find a signal. They had entered the coastal town’s perimeter, where reception should have been restored. Yet, this proximity to the lake meant their fate loomed ever closer. Only Meng Yu seemed composed, his voice cutting through the tension as he addressed Wang Xia in the backseat.  
 
 “Can you reach my bag in the trunk?”  
@@ -209,7 +209,7 @@ All they could do was wait—and pray.
 ————————————————
 
 
-### Chapter 4
+## Chapter 4
 **An Hour Earlier**  
 
 On the second deck of the ferry, a young man with curly hair sipped coffee as the sea breeze tousled his locks. A vibration from his satellite phone broke his reverie.  
@@ -260,7 +260,7 @@ X nodded, his expression unreadable. “Got it. Sorry to bother you.” With tha
 L’s unease deepened. Something was brewing, and he was right in the eye of the storm.
 
 
-### Chapter 5  
+## Chapter 5
 **The Ship’s Cargo Hold**  
 
 Time passed slowly. Small beams of flashlight occasionally swept across their faces, visible even through closed eyelids. Little A could feel the light touch her face shortly. Finally, the sound of footsteps faded. Moments later, the ship’s engines roared to life, vibrating the entire vessel. Little A glanced at her watch. It was only 9:40 PM. Barely ten minutes had passed.  
@@ -372,9 +372,10 @@ After some coaxing, Little A and CC hugged tightly. “It’s all passed. We nee
 As they left, Wang Xia lit a cigarette, muttering to himself “Fuck, when will us men stop being slaves to their sexual desires.” as he continued smashing windows.  
 
 “Hey, could you put that out?” a weak voice suddenly croaked from the car window Wang Xia just smashed .
-### Chapter 6  
 
-**9:25 PM**  
+## Chapter 6
+**9:25 PM**
+
 L stood outside of his office located on the second-deck, gazing out the window at hundreds of cars smoothly driving onto the ship and parking in an orderly manner in the lower cargo hold. Once parked, two crew members began their inspection to ensure the cargo deck was properly sealed. Thankfully, this critical step went off without a hitch. L felt a slight sense of pride—at least the first half of their plan had gone smoothly. Yet, his unease lingered.  
 
 It was this very unease that had prompted L, an hour earlier, to quietly move the contents from a large box in his room to a corner on the second deck after the tall, thin man named X had left. He covered the contents he took out of the box with a tarp already there on the deck, making it look inconspicuous. The wind on the deck was strong—judging from the fluttering flags, the wind speed was at least 35 km/h. After completing his preparations, L returned to his room and continued his attempts to connect to the traffic bureau’s systems. By analyzing several auxiliary databases and program logs, he deduced that at least three safety monitoring modules were malfunctioning. However, the modules for tracking vehicle routes and driving data were operational, which explained why no alarms had been triggered by the safety surveillance system. While he couldn’t get a full picture of the system’s status, things hadn’t yet spiraled out of control.  
@@ -398,7 +399,7 @@ L wasn’t particularly political. If he had to be labeled, he’d likely fall u
 Most of L’s work didn’t require him to be physically present; it was typically done online. But resetting the systems of so many vehicles in the middle of international waters required him to set up a 5G local network. Now that the cars had arrived, it was time to get to work. L picked up his coffee, ready to return to his task.
 
 
-### Chapter 7
+## Chapter 7
 
 Having left the ship’s lower deck, Meng Yu, Xiao A, and CC huddled together to plan their next move. 
 
@@ -455,7 +456,7 @@ CC wanted to protest but couldn’t find the words. Instead, she hugged Xiao A t
 Heart pounding, Xiao A slipped out of CC’s sight, not knowing what fate awaited her.
 
 
-### Chapter 8
+## Chapter 8
 
 In the restroom, Meng Yu continued interrogating the crew member, who introduced himself as Ben.
 
@@ -525,7 +526,7 @@ CC hesitated but nodded reluctantly. “Okay. At least I can help pass on messag
 
 As Meng Yu prepared to leave, CC felt the weight of the situation pressing down on her. Waiting in the restroom with a gagged hostage felt like an eternity. Meanwhile, Meng Yu slipped into the shadows, determined to find Wang Xia before it was too late.
 
-### Chapter 9  
+## Chapter 9
 
 10:10 PM. Xiao A cautiously approached the lit room on the second floor. It had a large window, likely providing a clear view of the surroundings. She quietly peeked inside—and froze.  
 
@@ -596,7 +597,8 @@ With that, X rested a hand on Xiao A’s shoulder, guiding her out at gunpoint.
 L was left alone in the room, staring at his incomplete work, the unraveling plan, and the danger now looming over his old friend.  
 
 He gripped his hair tightly, muttering to himself. “Stay calm. Stay calm. There’s always a way. She’ll be fine. She has to be.”
-**Chapter 10**  
+
+## Chapter 10
 
 The three companions hadn’t been gone for long when Wang Xia discovered an awake passenger.  
 
@@ -645,7 +647,8 @@ Ben, meanwhile, also heard the gunshots below. He wanted to escape with CC but c
 At the same time, the car thieves playing cards in the lounge also heard the commotion from the lower deck. They exchanged glances and prepared to retrieve their guns from their rooms to investigate. Two of them grabbed radios to inform the captain.  
 
 The control room was far from the lower deck, and S and his two assistants had no idea what was happening on the ship. But this ignorance wouldn’t last much longer. Soon, they’d find out.
-**Chapter 11**  
+
+## Chapter 11
 
 X escorted Xiao A from L’s office toward the control room, his gun trained steadily on her. “How many of you escaped?” he asked coldly.  
 
