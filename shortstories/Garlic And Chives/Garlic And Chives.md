@@ -524,6 +524,7 @@ Meng Yu smacked his forehead. “Right. I almost forgot about him. You stay here
 CC hesitated but nodded reluctantly. “Okay. At least I can help pass on messages. That’s better than being completely useless.” 
 
 As Meng Yu prepared to leave, CC felt the weight of the situation pressing down on her. Waiting in the restroom with a gagged hostage felt like an eternity. Meanwhile, Meng Yu slipped into the shadows, determined to find Wang Xia before it was too late.
+
 ### Chapter 9  
 
 10:10 PM. Xiao A cautiously approached the lit room on the second floor. It had a large window, likely providing a clear view of the surroundings. She quietly peeked inside—and froze.  
@@ -595,3 +596,129 @@ With that, X rested a hand on Xiao A’s shoulder, guiding her out at gunpoint.
 L was left alone in the room, staring at his incomplete work, the unraveling plan, and the danger now looming over his old friend.  
 
 He gripped his hair tightly, muttering to himself. “Stay calm. Stay calm. There’s always a way. She’ll be fine. She has to be.”
+**Chapter 10**  
+
+The three companions hadn’t been gone for long when Wang Xia discovered an awake passenger.  
+
+This passenger, who had been diagnosed with lung cancer and required an oxygen tank, hadn’t completely lost consciousness. The sound of Wang Xia breaking the glass had startled her awake, and a few shards of glass had landed on her. She opened her eyes to see Wang Xia smoking a cigarette and quickly tried to move her oxygen tank away. She said, “Could you put out your cigarette?” This slightly older woman was named H.  
+
+Wang Xia was overjoyed and wanted to rescue her immediately, but she waved her hand, saying she needed a moment to rest before she could move—her body felt too heavy. At her age, climbing out wasn’t so easy. Wang Xia, speaking through the now glassless car window, explained how the others had avoided the sedatives, escaped the vehicle, and were now searching for a lifeboat and calling for help. Soon, they’d be able to escape the ship.  
+
+After chatting quietly with H for a moment, Wang Xia quickly moved on to smashing other car windows. He was in high spirits, thrilled to have saved someone. Who knew how many others might be trapped but conscious in their vehicles?  
+
+But in his excitement, he didn’t notice the danger creeping closer. Z was making his way directly from L’s office to the lower deck. At the same time, Meng Yu had also reached this level and saw Wang Xia focused on breaking windows. However, near the bow of the ship, another figure had arrived, aiming a gun.  
+
+“Get down!” Meng Yu’s shout echoed from nearby. But almost simultaneously, a gunshot rang out.  
+
+Wang Xia didn’t understand what was happening. He just felt his body freeze, a coldness spreading through him, and then the impact as he hit the ground. His vision blurred. He realized he’d been shot somewhere in his chest. He felt blood pooling and his consciousness fading.  
+
+Meng Yu’s warning had revealed his approximate location. Keeping low, he moved quickly between the cars, eventually sliding under one to hide. Z didn’t shoot again but instead approached Meng Yu’s position with deliberate, gun-ready steps. The ship’s engine roared loudly, masking the sound of his footsteps.  
+
+The gunman walked past Wang Xia, who lay on the ground with open eyes, paying him no attention. He also overlooked H, who was pretending to be unconscious in her car. H was filled with shock, fear, and sorrow for the young man who had fallen trying to save others. Was he still alive? Where had he been shot? She couldn’t climb out of the car to check or save him.  
+
+Meanwhile, CC, trembling in a restroom on the first floor, had also heard the gunshot from below. Her whole body shook. Was someone hurt or dead? Was it Meng Yu? Wang Xia? Or little A? CC shut her eyes tightly. When she opened them again, she saw the bound sailor and the first aid kit by the sink. Maybe there was still hope.  
+
+But the enemy had a gun. If she went out, wouldn’t she just be throwing her life away? Yet her intuition told her someone needed urgent help. After a night of hesitation, she finally acted on impulse. She grabbed a tourniquet and scissors, then stepped out of the restroom, closing the door behind her. She retraced her steps quietly.  
+
+Meng Yu, hiding under a car, watched Z’s boots getting closer and closer. Each step increased Meng Yu’s odds of success. Just stay calm. Wait. Fear was useless. Facing fear was the only way to conquer it. Truth be told, he wasn’t young anymore, and the intense situation had his heart racing. He used his experience to force himself to calm down.  
+
+Halfway down the stairs, CC spotted the gunman moving slowly. Terrified, she silently took a few steps back. Clutching gauze and scissors, her whole body trembled. She told herself, “I’ve already been brave. Anything more would just be reckless.” Tears streamed down her face as she crouched against a wall in a dark corner, waiting helplessly for things to unfold.  
+
+Z was now just a meter away from Meng Yu’s car. The air seemed to freeze. Meng Yu thought, *Firearms aren’t suited for close combat, and the lighting here is poor. If he steps one more foot closer, I can take him down.* As long as his position wasn’t discovered, there was hope.  
+
+Z hesitated, unsure whether to move forward. He felt that someone was very close. He crouched down, trying to see under the car and maintain his balance. Meng Yu saw the man’s caution and realized he was an expert. If this continued, Meng Yu would be discovered. He had no choice but to take a gamble.  
+
+He aimed at the man’s lower leg and threw his sharp, concealed dagger with all his strength. As the dagger hit its mark, another gunshot rang out.  
+
+Hours earlier, these four didn’t know which other. Then they had been drawn into a shared nightmare. Wang Xia was shot and near death, Meng Yu’s life hung by a thread, Xiao A had been kidnapped, and only CC was temporarily safe.  
+
+Hearing the second gunshot, CC turned back to the women’s restroom. She untied the sailor and pleaded with him to help her launch a lifeboat.  
+
+“Is this all I can do? Am I just going to save myself?” she wondered. “Maybe. After all, I’m just a coward. These people are just strangers I met by chance. Why risk my life for them?”  
+
+She tried to convince herself, remembering how they had planned to use the lifeboat to escape and call for help. How had things spiraled so far? *It’s not my fault,* she thought repeatedly.  
+
+But she couldn’t forget how her companions had repeatedly taken risks for her, always finding excuses to protect her.  
+
+Ben, meanwhile, also heard the gunshots below. He wanted to escape with CC but couldn’t abandon his uncle in the control room. Agreeing to CC’s request, he headed to the deck to prepare the lifeboat, letting the beautiful woman escape first while he went to find his uncle.  
+
+At the same time, the car thieves playing cards in the lounge also heard the commotion from the lower deck. They exchanged glances and prepared to retrieve their guns from their rooms to investigate. Two of them grabbed radios to inform the captain.  
+
+The control room was far from the lower deck, and S and his two assistants had no idea what was happening on the ship. But this ignorance wouldn’t last much longer. Soon, they’d find out.
+**Chapter 11**  
+
+X escorted Xiao A from L’s office toward the control room, his gun trained steadily on her. “How many of you escaped?” he asked coldly.  
+
+Xiao A maintained a blank expression. “If you kill me, you’ll lose your leverage over L.”  
+
+X smirked, conceding to the truth of her words. He nodded and said, “You’re right, young lady. I don’t usually make it a habit to torment women, but my patience has its limits.”  
+
+With that, he grabbed Xiao A’s arm and twisted it hard behind her back.Xiao  A sickening crack echoed as her elbow joint shifted unnaturally, sending a searing pain up her arm. Xiao A screamed in agony, and X twisted further, a sharp reminder to cooperate.  
+
+Unable to strategize through the pain, Xiao A finally blurted out, “Four! Four of us escaped!”  
+
+X’s cold smile deepened as he saw the fear, regret, and anger flash across her face.  
+
+He wasted no time. Using his satellite phone, X called headquarters to report the situation. “The disturbance on the ship is caused by four conscious hostages who managed to escape. My men are working to capture them. I’ll also know in half an hour whether the car theft organization will cooperate. If the vehicles remain locked, we may have to use the entire ship as leverage. The island operatives will need to handle the car thieves, but that introduces too many variables. L must open the vehicle doors as planned so the thieves can take the cars, while we concentrate the hostages in one location for negotiations with the government.”  
+
+X didn’t care how much Xiao A overheard; to him, she was insignificant.  
+
+However, A absorbed every detail. She began calculating survival probabilities for different scenarios. If all the captors wanted were hostages, maybe the best course was to stop resisting and wait for the negotiations to play out over the coming weeks. As much as she hated the man beside her, her rational mind told her that struggle might be futile.  
+
+X pushed Xiao A toward the control room door and knocked. When the door opened, he shoved her inside.  
+
+S, the ship’s captain, looked up in shock at the unexpected intruder and the young woman held at gunpoint. “What’s the meaning of this?” he demanded.  
+
+“Hand over the satellite phone,” X ordered.  
+
+S hesitated but had no choice. He complied.  
+
+Now in control of L, the captain, the satellite phone, and the control room, X felt unstoppable. He addressed S in a calm but firm tone. “Don’t misunderstand. We haven’t reached the point of turning on each other yet. According to the plan, once we reach our destination, you take the cars, and we take the people—no interference. But circumstances have changed, and we need to ensure there are no misunderstandings. Cooperate and hand over the phone. For now, you, the girl, and your men will stay here for thirty minutes until my team resolves this situation.”  
+
+At that moment, the captain’s radio crackled to life. A crew member reported the sound of gunfire from the lower deck and asked if they should investigate. Additionally, S’s nephew was missing. Hearing this, S felt a chill in his heart.  
+
+X shot S a warning look, and the captain gritted his teeth before replying, “No one moves without orders. Stay safe.”  
+
+---
+
+Meanwhile, on the deck, CC and Ben struggled to release the capsule lifeboat. Ben, trained in maritime procedures, worked methodically, but he discovered something alarming—a steel cable had been discreetly added to secure the lifeboat, making it nearly impossible to deploy.  
+
+CC saw the panic in Ben’s expression and understood that their opponents had sabotaged the lifeboat. Ben clenched his fists, realizing just how ruthless and unscrupulous their enemies were.  
+
+Without hesitation, CC turned and ran back toward the lower deck. It felt like fate—there was no room left for cowardice.  
+
+---
+
+In the lower deck, a desperate fight unfolded.  
+
+Z and Meng Yu were locked in hand-to-hand combat, their weapons—gun and knife—discarded nearby. Meng Yu initially gained the upper hand through technique, but Z’s superior strength and stamina began to shift the balance.  
+
+Z managed to grab the knife and drove it into Meng Yu’s left shoulder. Meng Yu cried out in pain, and Z struck again, stabbing him in the side. Despite his injuries, Meng Yu stubbornly clung to Z’s throat, though his strength was fading rapidly.  
+
+The situation grew dire. Just as Meng Yu was on the verge of collapse, a gunshot thundered nearby. Z’s hand, still clutching the knife, fell limp from Meng Yu’s shoulder.  
+
+It was CC. She had picked up Z’s discarded gun and fired at point-blank range. She stared in disbelief at Z’s lifeless body, unable to process what she had just done.  
+
+There was no time for reflection. She quickly retrieved gauze from her pocket and handed it to Meng Yu before remembering Wang Xia. Racing back to grab the first aid kit, she prayed it wasn’t too late.  
+
+On her return, she saw Ben, disheveled and weary. She urged him to help Meng Yu stop the bleeding while she attended to Wang Xia.  
+
+Ben, still bitter about the way the older man had treated him, hesitated. But seeing the extremes Z and X were willing to go, he understood the true threat. For a seaman, sabotaging lifeboats was an unforgivable crime. Gritting his teeth, he went to patch up Meng Yu’s wounds.  
+
+Meng Yu’s injuries, though severe, weren’t fatal thanks to his muscle mass. Exhausted, he leaned against a car as Ben worked on him.  
+
+Meanwhile, CC rushed to Wang Xia’s side. He was unconscious, with no noticeable breathing. She leaned down and faintly detected a weak heartbeat. The gunshot had hit near his right chest, close to his shoulder, and blood pooled beneath him.  
+
+Frantically, she pressed gauze against the wound. Struggling to recall the steps for emergency aid, she felt overwhelmed until a soft voice broke through her panic.  
+
+“Miss, there’s an oxygen tank here. Use it for him.”  
+
+CC turned to see H, still conscious in her shattered vehicle. Overwhelmed with gratitude, CC took the oxygen tank and positioned the mask over Wang Xia’s face.  
+
+Ben, finishing with Meng Yu, joined CC to reapply proper bandages. Meanwhile, CC assisted Wang Xia with oxygen and checked his pulse periodically, feeling it weaken with each passing moment.  
+
+Desperation mounting, CC began performing CPR. As she pressed down on his chest, her voice shook with emotion.  
+
+“Wang Xia, I know you’re a pervert,” she said, gasping between compressions. “But today… you were brave. You were good. I forgive you. But now— I need you— to be brave— for me— one more time. Just this once—this last time.”  
+
+Tears fell onto Wang Xia’s closed eyes as she fought to bring him back.
