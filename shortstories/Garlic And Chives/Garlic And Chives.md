@@ -725,3 +725,221 @@ Desperation mounting, CC began performing CPR. As she pressed down on his chest,
 “Wang Xia, I know you’re a pervert,” she said, gasping between compressions. “But today… you were brave. You were good. I forgive you. But now— I need you— to be brave— for me— one more time. Just this once—this last time.”  
 
 Tears fell onto Wang Xia’s closed eyes as she fought to bring him back.
+
+
+### Chapter 12  
+
+The crew heard S’s warning to stay cautious and not act rashly, but no further instructions followed. From the cargo hold, there were distant shouts, but the gunfire had ceased for some time. The crew members who weren’t in the cockpit cautiously made their way down to the hold.  
+
+“I’m here! Come help!” Ben shouted at the approaching crew.  
+
+“Ben, you’re alive! What are you doing here? And…where are your clothes?”  
+
+“It’s nothing. Just a minor issue,” Ben replied dismissively.  
+
+“Holy crap, who are these two? And why are there still people in these cars? What’s going on? Why aren’t they moving?”  
+
+Ben gave a brief and vague explanation of the situation, deliberately avoiding any mention of Meng Yu. He had a hunch his uncle wouldn’t be pleased to know the details. The crew fetched a stretcher and carried the barely-alive Wang Xia away. As for Z’s corpse, they were unsure how to handle it. The crying, beautiful girl, CC, was another question mark. Ben shielded CC from the prying eyes of the others and led her to the crew's lounge.  
+
+Now, the only ones left conscious in the cargo hold were Meng Yu, who sat quietly in a dark corner, and H, who was still inside the car.  
+
+Two crew members who had gone near the cockpit to investigate returned to report their findings. “Five people are there in the room, the captain, along with two other crew members and X and a young woman we don’t recognize. We’re not sure what’s going on. We didn’t dare enter or knock on the door. The captain can still move around freely, but from the sound of the earlier radio communication, it doesn’t seem like he’s entirely in control of the situation.”  
+
+The crew gathered to discuss their next steps.  
+
+“So…are we officially at odds with X and his group now?”  
+
+“But Z wasn’t killed by us. What does it have to do with us?”  
+
+“Forget it. Let’s wait for the captain’s orders.”  
+
+Suddenly, Ben remembered something. “Oh, right! X and his group tampered with the lifeboat launch mechanism. They reinforced it with steel cables!”  
+
+This revelation infuriated the crew. They split up to work on resolving the lifeboat issue. Who knew what other tricks X might have up his sleeve? What if he’d planted bombs on the ship?  
+
+Meanwhile, X remained unaware that his subordinate, Z, was dead. He believed the crew had been subdued and wouldn’t cause trouble. Z, armed and professional, had been tasked with handling three unarmed passengers—an easy mission. Even if they couldn’t all be subdued, being counterattacked seemed impossible. It had already been 20 minutes since Z had left, and X was beginning to feel uneasy. However, he didn’t want to show any doubt in front of the captain and the others. The ship was less than an hour away from docking.  
+
+At that moment, the ship’s public radio channel broadcasted L’s voice.  
+
+“X, I’ve completed my part. Let Xiao A go. Let her find me. After all, you already have the satellite phone. She poses no threat to you.”  
+
+“I’m in the cockpit. Can you prove the vehicles are operational?”  
+
+“Why not have Z check for you?”  
+
+“We’re tied up with other matters right now.”  
+
+“Fine, then I’ll have all the vehicles honk at once. You should be able to hear it from there. Does that work?”  
+
+“Sure.”  
+
+Moments later, a deafening chorus of horns erupted across the ship as over a hundred vehicles honked simultaneously. The sound was sharper and more grating than a ship’s whistle before departure.  
+
+L’s voice came through the radio again. “Hello, crew members. Xiao is my old friend. Please don’t trouble her. Thank you. ”  
+
+X turned to Xiao A and said, “Alright, go catch up with your friend. Just don’t cause any more trouble.”  
+
+X had never seen Xiao A as a threat and was happy to grant L this small favor. There was no need to keep Xiao A locked up with the other hostages.  
+
+X responded to L via radio: “She’s free.” Then, satisfied, he told the captain and the others, “Good. We can work together again. Now, I need your help to tally the people in the cars and move them out.”  
+
+Xiao A left the cockpit but didn’t head toward L. Instead, she went straight to the cargo hold. On her way down, she encountered several crew members, including Ben. Ben pulled her aside and quietly explained what had happened in the hold, including Meng Yu’s and CC’s locations.  
+
+Xiao A hurried to the cargo hold and found the weakened Meng Yu sitting in a dark corner. With difficulty, she helped Meng Yu to his feet, supporting his right arm. Together, they carefully avoided the crew and retreated to a stall in the women’s restroom on the first floor.  
+
+In a hushed tone, Xiao A told Meng Yu, “The car theft ring and X have joined forces. They’re planning to transfer the hostages from the cars and lock them up elsewhere until docking. There will be many of them on the island waiting for us.”  
+
+Meng Yu replied, “If Wang Xia isn’t taken to a hospital immediately, he might not make it.”  
+
+Both fell silent for several seconds.  
+
+Xiao A, remembering that L was still waiting for her upstairs, fetched some drinks from the lounge to replenish Meng Yu’s strength and left him hiding in the restroom to rest.  
+
+She wasn’t sure how to face L. She was exhausted, in pain, terrified, and grief-stricken—but above all, she was furious. Furious at L for being in league with these people, furious at X’s cruelty, and, though she might not have realized it, furious at the contempt her enemies had shown her.
+### Chapter 13  
+
+Xiao A finally arrived at the door of L’s office, only to find it open. The computer on the desk was closed, and L was nowhere to be seen.  
+
+"Over here! I’ve been waiting for you forever!" L’s voice came from the deck. He was already out there, setting up a powered paraglider. The glider was fully assembled, and he was making the final adjustments.  
+
+"You’re escaping now? Are you even human? Do you have the nerve to call me here just to watch you run away?" Xiao A hadn’t thought her opinion of L could sink any lower, but he managed to surprise her yet again. Her anger was boiling over.  
+
+“No, listen to me—” L began, but before he could finish, the door to the captain’s cabin near the stern opened. The light inside illuminated a patch of the dark deck, and several people emerged. Leading them was the tall figure of X, whose expression made it clear he’d learned about Z’s death.  
+
+“This isn’t good… no time left,” L muttered. “There’s a document on the desktop—check it out. The rest is up to you. You can handle it!”  
+
+Xiao A noticed X glancing in their direction. L quickly pulled up the paraglider into the wind. The gusts were strong, making it difficult to control, but he managed to lift off. Once he gained enough altitude, he turned and began flying away.  
+
+X raised his gun and fired several shots at the fleeing L. The glider wobbled precariously in the wind as L shouted something to Xiao A, but she only caught the last word: “Goodnight.” 
+
+Xiao A ducked back into L’s office. Despite her anger at him, she couldn’t help but pray he wouldn’t get hit.  
+
+By some stroke of luck—or perhaps thanks to the strong winds or the chaotic, unbalanced takeoff—L managed to avoid the bullets. He disappeared shakily into the darkness, out of sight.  
+
+Xiao A stood in a daze inside L’s office, unsure of what he’d said or what she was supposed to do next. Before she could gather her thoughts, a furious X stormed in.  
+
+“What did he say to you before he ran off? Ha! That coward actually abandoned a woman to save himself.”  
+
+Looking at the person she now hated most in the world, Xiao A regained her composure. With a cold, expressionless face, she replied, “L said he outsourced his work to me. The final payment is mine, too.”  
+
+X’s mocking expression shifted to one of mild surprise. “You? With less than half an hour until we dock, you think you can handle controlling all those vehicles?”  
+
+Xiao A stared at him calmly. “Didn’t you hear what he said? I’m the top of my class. He’s just a backbencher. If he can do it, why wouldn’t I be able to?”  
+
+Her thoughts drifted back to her university days with L.  
+
+L had been a peculiar kind of genius. His code was a chaotic mess that others struggled to understand. He skipped classes so often that he nearly failed to graduate. But every time there was an internal or external coding competition, he achieved astonishing results.  
+
+L had been an arrogant and flippant person, often dismissive of diligent students, convinced he was the smartest in the room. He deliberately wrote overly concise, cryptic code, making it difficult for others to decipher. In short, he was a habitual show-off.  
+
+Once, he wrote himself into a corner—his messy code had a bug he couldn’t fix. Frustrated, he left his unfinished assignment on a lab computer, neither encrypted nor locked, and went out for lunch. When he returned, the bug had been fixed.  
+
+On the desktop, there was a file named *readme.md* with an ASCII clown face and a single line of text: *“Don’t forget to encrypt next time—A.”*  
+
+The realization that someone had not only understood his undocumented code but also fixed it so quickly left L both impressed and humbled. From that day on, he regarded A as a kindred spirit and curbed much of his arrogance.  
+
+Xiao A, on the other hand, had once harbored feelings for L. But boys like him—charming yet reckless—always attracted drama, and she had eventually given up on him. They became friends instead.  
+
+Together, they collaborated on countless hackathons and competitions, rarely losing. At the same time, they were rivals, pushing each other to excel. For Xiao A, the overlap between information security and hacking was a constant balancing act. L’s ingenious attacks only strengthened her defenses over time.  
+
+X’s voice snapped her back to reality. “Well then, get ready. Once we dock, you’ll control and dispatch the vehicles, unlock them, and complete the job. If you pull it off, the remaining 2 million will be yours. If not, you can join your friends as hostages.”  
+
+With that, X disappeared out the door.
+### Chapter 14
+
+Xiao A’s left arm was so injured that she could barely move it. Meng Yu, gravely wounded, was still hiding in the women’s bathroom. Without eliminating X, Meng Yu would never be safe. Yet all Xiao A could do now was pray for him. Wang Xia’s fate was unknown, CC had been captured, and A felt powerless to help any of them.  
+
+**Is this how L is protecting me and himself?** Xiao A wondered. By making her take over his job and thus becoming an important hostage, it ensured her safety, as she wouldn’t be easily harmed. He himself hates being controlled and forced to do things, that is most likely why he left after all. But if she went through with this task and the police opened a case, even if she claimed coercion, her career would bear an indelible stain.  For now, though, she had to prepare. If the ship docked as planned, she would face not only more criminals but also unknown dangers.  
+
+Xiao A meditated for five minutes, clearing her mind of chaotic, useless emotions. Taking a deep breath, she muttered, “Alright, chaos. Let’s do this.” 
+
+She opened the desktop file titled **readme.md**. It was a mess of program entry points, with only a few scant notes. **He really hasn’t changed at all,** Xiao A thought. It took her ten minutes to untangle the functions of the various programs. To her relief, most of the functionalities had already been done—L had written nearly everything, and the critical tests had passed. With the vehicles ready to be activated, the task was 80% complete. “Not bad L”. The rest of the payment was almost effortless. but Xiao A really did not want it.   
+
+The main control panel displayed all vehicles in a **ready** state, with doors and windows unlocked. Another page detailed the vehicles' locations, hardware specs, and more.Xiao A dove deeper into the individual vehicle control programs, searching for a way to restore the deeply locked autonomous driving modules.  
+
+Her attention was drawn to the last program mentioned in **readme.md.** She tried accessing it, only to find the folder encrypted. **What’s in here?** she wondered. Perhaps it was something L wanted to hide from X or prevent accidental activation. The password was a ten-character string—a brute-force attack would take time, with the laptop’s processing power.  Should she spend time on this or focus on unlocking the vehicles?  
+**10 letters, what can it be? “Lisasshole”?** 
+Suddenly, inspiration struck. With a mix of exasperation and amusement, she typed, letter by letter, using her only functional hand: **GOODNIGHT.**  
+Well, it was only nine characters.  
+She added an **A** at the end.  
+Password correct!
+
+Xiao A couldn’t help laughing and crying at the same time. “How many times have I told him? Passwords need to be random!”  But tonight, randomness wouldn’t have worked. For once, she grudgingly admitted L was right.  
+
+As Xiao A studied the program and understood its purpose, her heart could not stay calm.  
+
+The night wasn’t over yet, and the long darkness had just begun. **Goodnight?** Not yet. Not at all.  
+
+Pushing her emotions aside, Xiao A dove into the ship’s internal camera network and the vehicles’ dashcam backups, preparing to launch the final program.  
+
+---
+
+Meanwhile, the crew was busy pulling unconscious passengers from the vehicles inside the ship. They were grumbling; the extra work and huge risk were the last things anyone wanted.  
+
+X, after leaving L’s office, methodically searched the ship for the last person who escaped from Xiao A’s car. He was convinced that Z had been killed by that man. Without finding him, X found he wasn’t safe. But the crew, still bitter about the tampering with the lifeboats, refused to help.  
+
+Alone, X searched every corner, each step increasing the danger to Meng Yu. The night grew colder. He swept through the lower deck, the main deck, the dining area, and the lounge, carefully checking for any signs of life.  
+
+When he reached the men’s restroom, he searched every stall with extreme caution. As he exited, the door to the women’s restroom caught his attention.  
+
+There he found Meng Yu.  
+
+Too weak to struggle, Meng Yu could only shield his head and chest as X shoved and kicked him, driving him onto the deck and knocking him to the ground.  
+
+X radioed a ship-wide announcement:  
+**“I’ve found the one who killed Z. He’s on the forward deck on the first level. Anyone want to send him off?”**
+
+---
+
+### Chapter 15
+
+X pointed his gun at Meng Yu, who was slumped on the deck. “Looks like no one wants to bid you farewell. Guess you’ll go alone.”  
+
+Meng Yu’s already pale face grew ashen. Whether he jumped into the sea or waited for the bullet, death seemed inevitable. Resigned, he spat at X’s shoe. “Scum.”  
+
+X chambered a round, raising the gun to Meng Yu’s head, ready to pull the trigger.  
+
+Suddenly, a kamikaze-style drone swooped in, smashing into X’s face. He screamed, stumbling backward, clutching at his injured eyes as blood seeped through his fingers. The drone launched repeated attacks on his head, forcing him to retreat several steps until he barely clung to the railing.  
+
+As X struggled to shield his head, blind and off-balance, Meng Yu mustered his last ounce of strength. He tackled X and hurled him over the railing. It happened in just a few seconds. There was a faint splash in the dark waters below.  
+
+Collapsing to the deck, Meng Yu gasped for air, his wounds bleeding anew. The drone hovered briefly before flying away. Not long after, Xiao A arrived, helping Meng Yu to the lounge to tend to his injuries.  
+
+“Was that drone yours?” Meng Yu asked weakly.  
+
+“Sort of,” A replied. “L left it for me, along with a program for autonomous targeting and attack. All it needed was a clear photo of the target. I combed through the ship’s camera backups and used deepfake technology to reconstruct the clearest 3D model to ensure no mistakes. I’d just finished debugging when the announcement came that you’d been found. We were lucky.”  
+
+The ship was only ten minutes from docking. Resting by the window, they watched the deck below, undisturbed by the crew. But what awaited them on land was still a mystery. But Xiao A is too tired to think of the upcoming danger.  
+
+The wind and engine noise were deafening, yet another sound grew louder—a rhythmic, high-frequency hum.  
+
+“A helicopter!”  
+
+“Oh no, it’s the cops!”  
+
+The helicopter descended shakily onto the deck, its roar overpowering everything else.  
+
+Xiao A knew they were saved. She had so much she wanted to say to L, but in the end, she could only whisper in her heart: **“Goodnight L”**. 
+
+Actually, A and L had been together briefly at one point. When they broke up due to long-distance, they promised to still say "goodnight" to each other every day. But that habit didn’t last long—L soon found someone new. Feeling it was inappropriate, A silently blocked all of L's contact information. From then on, the two each went their separate ways, both in life and in career paths.  
+
+Never did anyone imagine that their reunion would come on such a sleepless night.
+---
+
+### Epilogue
+
+Half an hour earlier, L flew through the pitch-black sky. With no satellite phone or cell signal, his only lifeline was a civilian radio. He tuned into rescue channels, desperate to reach someone.  
+
+“Can anyone hear me? Is anyone there?”  
+
+“Who are you?”  
+
+“A ship left Port T in the north at 9:30 p.m., carrying dozens, maybe hundreds, of hostages taken by terrorists. There are also stolen vehicles onboard. It’s now in international waters. Please send help!”  
+
+At first, the response was skeptical, but after confirming with police that numerous missing persons reports had flooded in that night, they acted.  
+
+When L saw police helicopters heading toward the ship, he turned back. His fuel gauge was dangerously low. **Guess this is karma catching up.** If he crashed, bound to the heavy equipment and stripes, survival was nearly impossible.  
+
+To save fuel, he jettisoned the motorized propeller into the sea and relied solely on the paraglider. Freed from the weight, the glider moved faster but was harder to control. Fighting shifting winds, he painstakingly calculated the shortest path to shore.  
+
+Hours later, L crash-landed on a dark, sandy beach. Exhausted and soaked, he collapsed, letting the waves drench him as he stared at the vanishing stars and the faintly brightening horizon. Despite everything, he felt free.
