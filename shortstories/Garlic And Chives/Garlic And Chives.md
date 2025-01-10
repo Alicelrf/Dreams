@@ -727,7 +727,7 @@ Desperation mounting, CC began performing CPR. As she pressed down on his chest,
 Tears fell onto Wang Xia’s closed eyes as she fought to bring him back.
 
 
-### Chapter 12  
+## Chapter 12  
 
 The crew heard S’s warning to stay cautious and not act rashly, but no further instructions followed. From the cargo hold, there were distant shouts, but the gunfire had ceased for some time. The crew members who weren’t in the cockpit cautiously made their way down to the hold.  
 
@@ -796,7 +796,8 @@ Both fell silent for several seconds.
 Xiao A, remembering that L was still waiting for her upstairs, fetched some drinks from the lounge to replenish Meng Yu’s strength and left him hiding in the restroom to rest.  
 
 She wasn’t sure how to face L. She was exhausted, in pain, terrified, and grief-stricken—but above all, she was furious. Furious at L for being in league with these people, furious at X’s cruelty, and, though she might not have realized it, furious at the contempt her enemies had shown her.
-### Chapter 13  
+
+## Chapter 13
 
 Xiao A finally arrived at the door of L’s office, only to find it open. The computer on the desk was closed, and L was nowhere to be seen.  
 
@@ -845,7 +846,8 @@ Together, they collaborated on countless hackathons and competitions, rarely los
 X’s voice snapped her back to reality. “Well then, get ready. Once we dock, you’ll control and dispatch the vehicles, unlock them, and complete the job. If you pull it off, the remaining 2 million will be yours. If not, you can join your friends as hostages.”  
 
 With that, X disappeared out the door.
-### Chapter 14
+
+## Chapter 14
 
 Xiao A’s left arm was so injured that she could barely move it. Meng Yu, gravely wounded, was still hiding in the women’s bathroom. Without eliminating X, Meng Yu would never be safe. Yet all Xiao A could do now was pray for him. Wang Xia’s fate was unknown, CC had been captured, and A felt powerless to help any of them.  
 
@@ -891,7 +893,7 @@ X radioed a ship-wide announcement:
 
 ---
 
-### Chapter 15
+## Chapter 15
 
 X pointed his gun at Meng Yu, who was slumped on the deck. “Looks like no one wants to bid you farewell. Guess you’ll go alone.”  
 
@@ -924,9 +926,10 @@ Xiao A knew they were saved. She had so much she wanted to say to L, but in the 
 Actually, A and L had been together briefly at one point. When they broke up due to long-distance, they promised to still say "goodnight" to each other every day. But that habit didn’t last long—L soon found someone new. Feeling it was inappropriate, A silently blocked all of L's contact information. From then on, the two each went their separate ways, both in life and in career paths.  
 
 Never did anyone imagine that their reunion would come on such a sleepless night.
+
 ---
 
-### Epilogue
+## Epilogue
 
 Half an hour earlier, L flew through the pitch-black sky. With no satellite phone or cell signal, his only lifeline was a civilian radio. He tuned into rescue channels, desperate to reach someone.  
 
