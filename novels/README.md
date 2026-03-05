@@ -66,6 +66,74 @@ This is where Alice stores all of her novels.
 
 《Blind City》也是 **水仙病毒宇宙的一部分**。
 
+# Narcissus Virus Universe
+
+This is where Alice stores all of her novels.
+
+---
+
+## Overview
+
+The **Narcissus Virus Universe** is a **loosely connected collection of short stories**.
+
+Its narrative style is somewhat similar to:
+
+> *Cowboy Bebop*
+
+Individual stories are mostly independent from one another.  
+However, **certain characters appear repeatedly**, providing a sense of continuity across the universe.
+
+---
+
+## Outer Narrative Structure
+
+At the outermost level, the Narcissus Virus universe revolves around:
+
+> **Three infected girls and the different choices they make when facing illusion and reality.**
+
+Each of them represents a different path of consciousness.
+
+---
+
+## Main Storyline
+
+The central storyline of the universe focuses on the evolving relationship between:
+
+**Alice and J, the primary personality of the virus.**
+
+Across different stories, this relationship gradually reveals:
+
+- the nature of the virus  
+- the structure of the illusionary worlds  
+- the boundaries of Alice’s own consciousness  
+
+---
+
+## Side Stories
+
+Many stories in this universe are:
+
+- adventure-style short stories  
+- or novellas
+
+These stories mainly serve to:
+
+- explore different parts of the world  
+- develop character personalities  
+- expand the illusionary environments created by the virus  
+
+---
+
+## Creation Timeline
+
+- **Spring–Summer 2023**  
+  The initial concept of the Narcissus Virus universe was created.
+
+- **Early Winter 2023**  
+  The idea for **_Blind City_** emerged.
+
+*Blind City* is also part of the Narcissus Virus universe.
+
 
 
 
