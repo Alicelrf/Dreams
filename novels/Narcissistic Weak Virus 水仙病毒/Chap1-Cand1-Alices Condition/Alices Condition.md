@@ -1,5 +1,3 @@
-# Alice's Condition
-
 ## Chapter 1: Prelude
 
 "Drip—drip—drip—"

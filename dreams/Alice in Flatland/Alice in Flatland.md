@@ -8,7 +8,7 @@ I didn't understand what was happening. I saw a plump woman crawl into the beige
 
 I couldn't comprehend how hiding like this would help. So, I just huddled in a corner with a cabinet next to me.
 
-Then I heard a variety of noises, and before I could react or see anything, I felt something passing through the air. This was followed by cries and screams. The curtain hiding the plump woman moved slightly, and then she was gone. There was silence for a moment, and I saw two or three people emerging from their hiding spots, but I couldn't see the man who had crawled under the table. Everyone exchanged glances with a hint of unease on their faces. In my mind, I was desperately trying to figure out how not to be found. I was clearly more conspicuous than the plump woman, yet she was the one attacked and disappeared, along with the man under the table. How did "they" even discover them? Could it be unrelated to visual or perspectival factors?
+Then I heard a variety of noises, and before I could react or see anything, I felt something passing through the air. This was followed by cries and screams. The curtain hiding the plump woman moved slightly, and then she was gone. There was silence for a moment, and I saw two or three people emerging from their hiding spots, but I couldn't see the man who had crawled under the table. Everyone exchanged glances with a hint of unease on their faces. In my mind, I was desperately trying to figure out how not to be found.I was obviously even more exposed than the plump woman, yet she was the one attacked and disappeared, along with the man under the table. How did "they" even discover them? Could it be unrelated to visual or perspectival factors?
 
 
 As I pondered, the entire scene changed, and I found myself on unfamiliar streets. It was a crowded street reminiscent of the old Shanghai Bund, bustling with people.
@@ -48,7 +48,7 @@ So, there was an equal exchange, roughly one-to-one.
 But in the second round, you probably transitioned from being a pursuer in the first round to
 being pursued in the second round.
 Many pursuers in the second round failed to attack anyone because some people who had experienced 
-the first round were more cautious. Although it was a face trajectory attack and the speed was
+the first round were more cautious. Although it was a surface-plane attacks and the speed was
 slower than the previous line trajectory attack, you still made it through the second round.
 In the second round, almost everyone who didn't successfully attack became three-dimensional 
 beings in the third round. This time, they had vision, but their attack speed decreased a bit.
