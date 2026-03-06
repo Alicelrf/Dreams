@@ -27,9 +27,9 @@ A place to hold Alice's dreams.
 | Dog Park                     | 丢失的狗          | 2023-10-29 | Dream  |
 | Edward                       | 第一最好不相见       | 2023-10-02 | Dream  |
 | Lavender                     | 薰衣草           | 2023-10-07 | Dream  |
-| Black Panther                | 黑豹            | 2023-09-23 | Dream  |
+| Black Panthers               | 黑豹            | 2023-09-23 | Dream  |
 | Para Uber                    | 滑翔伞黑车司机       | 2023-09-21 | Dream  |
-| Bug Land                     | 异常域           | 2023-09-09 | Dream  |
+| Bug Ladn                     | 异常域           | 2023-09-09 | Dream  |
 | Zombie Restaurant            | 僵尸出没          | 2022-01-25 | Dream  |
 | Ape Matrix                   | 红猩猩           | 2017-11-07 | Dream  |
 | The Trackless Roller Coaster | 无轨过山车设计比赛     | 2017-02-12 | Dream  |
