@@ -9,6 +9,7 @@ A place to hold Alice's dreams.
 ---
 
 # Dream Works Timeline
+## 比较精彩的梦和基于梦的作品
 
 | Title                        | Chinese Title | Dream Date | Notes  |
 | ---------------------------- | ------------- | ---------- | ------ |
@@ -44,7 +45,24 @@ A place to hold Alice's dreams.
 | The White Elephant           | 白象            | 2003       | Dream  |
 
 ---
+## Dream Ideas timeline:
+## 原始短梦
 
+| Title                                  | Chinese Title | Dream Date | Notes  |
+| -------------------------------------- | ------------- | ---------- | ------ |
+| Snowpiercer                            | 雪国列车          | 20240302   | 焦虑规则设定 |
+| Ice Wonderland                         | 冰雪仙境          | 20240106   | 唯美幻境   |
+| Jail in Germany                        | 德国的监狱         | 20240106   | 越狱规则   |
+| Climbing Escape Room                   | 攀岩密室逃脱        | 20200503   | 游乐场    |
+| Are You an NPC?                        | 你是NPC吗        | 20200425   | 社会规则   |
+| War                                    | 战争            | 20180304   | 战争百态   |
+| Searching for Someone in a Dream       | 梦里寻人          | 20170630   | 梦与现实   |
+| Spherical Spacetime                    | 球形时空结构        | 20170608   | 科幻构想   |
+| The Bamboo Grove Disturbance           | 竹林不清净         | 20170607   | 现实干扰梦境 |
+| The Bribeable Monster                  | 可以贿赂的怪物       | 20160301   | 焦虑荒诞   |
+| The Black Widow                        | 黑寡妇           | 20150528   | 荒诞解释   |
+| Impressionist Sky & the Gay Theme Park | 印象派天空与GAY主题公园 | 20150324   | 唯美奇观   |
+| The Curtain Festival                   | 欧洲小镇窗帘节       | 20141209   | 童话唯美   |
 # Notes
 
 This repository collects dream-based stories and fictional worlds developed from them.
