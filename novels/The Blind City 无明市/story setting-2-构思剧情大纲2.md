@@ -1,3 +1,4 @@
+# 剧情人物大纲
 A 和 J是水仙病毒里的常驻主角，所以可以作为AJ制衡阶段的探险梦，不涉及主线剧情·。
 这个故事篇群像，但以S和K作为主要张力来源
  《无明市》分人物剧情概要列表
@@ -32,7 +33,7 @@ S 几个阶段：
 3. 探索，学习，收获，不安缓解。
 4. 失望，被拒绝，发现虚伪冷淡之处。Blind City只想要可视者去做城市需要的事情。
 5. 要决定是去是留
-6. # Blind City — Character Plot Outline
+# Blind City — Character Plot Outline
 
 A and J are recurring protagonists in the **Narcissus Virus universe**,  
 so this story functions as an **exploration dream during the AJ equilibrium phase** and does **not involve the main storyline**.
