@@ -1,17 +1,98 @@
-# Edward
+I was riding my bicycle along a narrow road in my hometown.  
+The road passed through a very tight archway.
 
-In the dream:
+My field of vision was extremely limited, and I almost ran into someone walking ahead of me. To avoid hitting him, I lost my balance and fell off the bike.
 
-I was biking on a narrow road across a narrow arch in my hometown. My view was very limited so I almost hit someone walking in front, I fell from the bike while trying to avoid that pedestrian.
+I managed to brace myself against the wall of the stone arch and didn’t actually fall to the ground.  
+The person was startled and turned around.
 
-I managed to lean on the wall of the arch without falling down. That guy was startled and turned around. He was Edward in his 17 year old look. And I realized I am back to my 16ish, so the year should be 2009. 
+It was **Edward, looking like he did in high school**.
 
-I had a mixed feeling facing the 17 year old Edward. It was nice and touching to see someone who were very endearing to me and whom I haven’t seen for more than 10 years. I didn’t know how to react either. I can’t remember clearly what happened at that specific time in real life (I didn’t realize I was dreaming I thought my soul did some strange time travel). I didn’t want to make things complicated, I just want to behave like me in that right time. 
+At that moment I realized that I myself had probably returned to **around sixteen**, so the year must have been **2009**.  
+Facing this seventeen-year-old Edward, my emotions were incredibly complicated.
 
-I was thinking really hard. Were us friends? Did we fight? Did we start our crappy relationship? Did he betray me? We had such complex history with fighting happened every a few days! How am I supposed to know?! 
+To see again someone I had once cared for so deeply, yet **had not seen for more than ten years**, felt both warm and painfully bittersweet. For a moment, I didn’t know how to react.
 
-He didn’t give me the chance to think about how to react normally. He went straight to me and gave me the tightest hug. It felt like the one he gave me in real life once when he tried to convince me not to leave him. He held me like I was some missing part of his body and he just tried to merge me back to him. It was kinda hard to breath nor think. Then he tried to kiss me, and the atmosphere was getting out of control. I stopped him and told him I am not her.
+I couldn’t clearly remember what had actually been happening around that time in real life.  
+I didn’t want to make things complicated. I just wanted to **act the way I would have back then**.
 
-I told him that I was from 2023, 12 years after we broke up in 2011(which is 2 years in the future). He was not surprised. He said he was from 2010, and we just had a huge fight and we were in a cold battle. He said it was not the first time he had this sort of soul time travel but it was the first time he saw me. The other travels he had were all to the future so he knew I would never be in his life in the future. He told me that he had really missed me. He had tried to look for me in his future life when he travelled to it but he can’t find me anywhere. 
+So I desperately tried to recall.
 
-I told him that not long after we broke up in 2011 when we were in two different universities in Wuhan (we also broke up a few times before this last one), I got sick quite badly for like two month and I lost my phone. I was not allowed to use any electric devices for my recovery, I still managed to send him a message on social media using desktop when my parents didn’t notice. But I never received his reply after days, so I blocked and deleted him from all the social media. When I fully recovered and got a new phone, I got a new number and told all of my friends Edward and I were done forever. After listening to what I said, he could not say anything for a while. Because what I said was something was in his future and he didn’t know. Then he felt it was almost the end of his soul time travel, he urged me to tell him my phone number in 2023, saying he would remember the number with his mind and call me when he live to 2023. I smiled with tears and told him a fake one. Because I knew, he would not call, and I hated waiting.
+Were we friends at that time?  
+Had we just had a fight?  
+Had that terrible relationship already begun?  
+Had he already betrayed me?
+
+Our history was so complicated. We had arguments **almost every few days**.  
+How could I possibly remember?
+
+But he didn’t give me any time to figure out how to behave normally.
+
+He walked straight up to me and gave me **a very tight hug**.
+
+It felt just like the hug he once gave me in real life when he was desperately trying to persuade me not to leave him.
+
+He held me as if I were **a missing piece of his body**,  
+as if by holding me tightly enough, I could somehow return to where I belonged.
+
+I could barely **breathe or think**.
+
+Then he tried to kiss me, and the moment started to feel a little out of control.
+
+I stopped him and said,
+
+**“I’m not her.”**
+
+I told him I was from **2023**.  
+That was many years after we had broken up.
+
+He didn’t look surprised.
+
+He said he was from **2010**, when we had just had **a huge fight** and were in the middle of a cold war with each other.
+
+He told me that this kind of **soul time travel** wasn’t the first time it had happened to him—but it was the **first time he had ever seen me**.
+
+On his previous trips, he had always gone to the **future**.
+
+So he had already known that in his future life, **I would no longer be there**.
+
+He said he had really missed me.
+
+In those future times he had **tried to look for me**, but no matter how hard he searched, he could never find any trace of me.
+
+So I told him what had happened.
+
+After **we finally broke up in 2011**,  
+I became very seriously ill. The illness lasted about **two months**.
+
+During that time I **lost my phone**.  
+To help me recover, I wasn’t allowed to use any electronic devices.
+
+But once, when my parents weren’t paying attention, I secretly used the family computer to send him a message on social media.
+
+Days passed, but **I never received a reply**.
+
+So I **blocked him and deleted all my social media accounts**.
+
+When I fully recovered, bought a new phone, and changed my number, I told all my friends:
+
+**Edward and I were completely over.**
+
+After hearing this, he stayed silent for a long time.
+
+Because everything I had just told him **belonged to his future**,  
+and he didn’t know any of it yet.
+
+Then he felt that his soul’s time travel **was about to end**.
+
+Anxiously, he asked me to tell him my **phone number in 2023**.
+
+He said he would **memorize it**, and when he eventually reached 2023, he would call me.
+
+I smiled through my tears and gave him **a fake number**.
+
+Because I knew—
+
+**he would never call.**
+
+And I **hate waiting**.
